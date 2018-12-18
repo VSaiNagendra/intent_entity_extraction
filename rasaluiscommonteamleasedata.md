@@ -1,0 +1,855 @@
+## intent:form16
+- <table style="font-family:times new roman; line-height:23.1111px"> \t<tbody> \t\t<tr> \t\t\t<td>dear sir/madam,</td> \t\t</tr> \t\t<tr ... 6745 characters truncated ... t ltd does not accept liability for any damage caused by the transmission of this email</p> \t\t\t</td> \t\t</tr> \t</tbody> </table>
+- dear associate, thank you for writing to us. as per section 192 of the income tax act, 1961 and rule 31 of the income-tax rules, if tax has ... 66 characters truncated ... issue a form 16. this position has been clarified by the income-tax department by circular - 9 of 2003. regards, rahul associate relations
+- dear sir, thanks for your favourable reply and also kindly update form 16 . thanks and regards ram prakash. k engineer - service contact - 9176606452 schwing stetter india pvt ltd
+- dear sir/ ma'am i am mayur p joshi , my employee id is 487981, reqired form16 due to heavy demand. please help me and ... 327 characters truncated ... w.avg.com/email-signature?utm_medium=email&utm_source=link&utm_campaign=sig-email&utm_content=webmail> <#dab4fad8-2dd7-40bb-a1b8-4e2aa1f9fdf2>
+- dear sir/ madam, i m manohar bane from bhandup ceat, employees code - 564349 please send last two years form 16 regards manohar bane.
+- dear sir/madam, please provide form 16 for the years 2017- 2018 & 2018-2019 for our needful help. thanks & regards rajneesh kumar mishra employee code 1153723
+- dear team please provide from_16 in 2017 to 2018. employee name employee code designation tushar punabhai chudasama 787652 techn ... 12 characters truncated ... n ._._ *regards, nirav patel* 501|abhijyot square|near divya bhaskar press|b/h ford show room|s.g.road makarba|ahmedabad|gujarat-380 051
+- dear team, i just wanted to apply for pf, please provide me form 10c and i need form 16 part a&amp;b to apply for income tax. regards. nuzha it to abuse@bizsupportad.com. please ensure you have adequate virus protection before you open or detach any documents from this transmission.
+- dear team,can you please update my pf transfer status..please refer tail mail for your reference..regardsmanikandan bfrom: associate inbound &lt;info ... 8184 characters truncated ... it to abuse@bizsupportad.com. please ensure you have adequate virus protection before you open or detach any documents from this transmission.
+- dear teamlease, type : form 16 nature : salary related category : documents concern : hi, i didn&#39;t form 16 for 2017-2018, pls share the same at the earliest. thanks requested date : 06-11-2018 09:
+- dear teamlease, type : form 16 nature : salary related category : documents concern : required form 16 i apply to loan ,humble request send form 16 on my mail id .my mail id. aakashkrushna111@gmail.com
+- dear teamlease, type : it clarifications nature : itdf category : taxation concern : send my form 16. last 2 year. send on below mail id - gopinathgade1@gmail.com requested date : 05-11-2018 15:29:34
+- dera team, i required form 16 for 2018-2019. thanks &amp; regards rakini from: infoteam [mailto:info@teamlease.com] sent: friday, 2 november 2018 4:40 pm to: s, rakini non-employee subject: ccs-
+- hi , is there any option if i still get form 16a, 16b for year 2017-18 even tax not deducted. i need it for visa application. thank you. nilesh koli quality surveillance administrator, services, india
+- hi raiza., could you please explain why you werenâ€™t able to provide form 16 for the year 2014 to 2015. ?? in the trial mail it is said that tea wondering is this the professional communication from such a reputed organisation to their ex-employee?? regards, sarath kumar vs 9791655273
+- hi sir name- tajammul shareef tl id -1026865 this is my team lease id send me 1year for 16 requst
+- hi team., could you please explain, why the form-16 for 2014 to 2015 couldnâ€™t able to issue ? regards, sarath kumar sent from my iphone
+- i need form 16
+- name- tajammul shareef emp id-1026865 please i request you make spelling correction of my name in yourteam lease....i want form16 with a correct name....... plz send me its my humble request to you....
+- on nov 2, 2018 5:56 pm, &quot;associate inbound&quot; &lt;info@teamlease.com&gt; wrote: dear associate, as discussed regards to the form 16 please send the pan card copy to info@teamlease.com ,post we
+- on sat, 3 nov 2018, 8:46 p.m. tajmul tajmul <tajmult42@gmail.com wrote: > name- tajammul shareef > emp id-1026865 > please i request you yourteam > lease....i want form16 with a correct name....... plz send me its my humble > request to you...... your employer........ >
+- please mention the exact amoubt to be credited in the account. also, pls share the below 2 documents on priority: - f&f statement with all calculation - form 16 for tax purposes sarpreet
+- respected sir, please provide me from 16 as per details below name:- nilesh j patel employe code :-589830
+- respected sir/madam, i, miss debarati kundupresently mrs. debarati kundu ghosh,my teamlease employee code is 824974. i want form 16. i re ... 18 characters truncated ... several times.but i didn't get anything. please help me as soon as possible. yours thankfully debarati kundu. tl code:-824974.
+- sent from my samsung galaxy smartphone. sir i am avik dolui a worker of berger paints india ltd of rishra under team lease.m ... 22 characters truncated ... ord avik@123d.sir i want my form 16 of year of 2016-17 and 2018-19.i want these for house loan purpose. sir pls sent my form 16 as soon as posible.
+- sir i am avik dolui \xa0a worker of berger paints india ltd of rishra \xa0under team lease.my id 1096034 and password avik@123d.sir i want my form 16 of year of 2016-17 and 2018-19.i want these for house loan purpose. sir pls sent my form 16 as soon as posible.
+
+## intent:itform
+- dear team, we have faced error in it sheet because there is showing nill amount in it sheet from the month of oct-2018.kindly do needful.details are given below &amp; it sheet has been also attached
+- dear teamlease, type : it computation sheet nature : salary related category : documents concern : dear sir, please update my it computation sheet. requested date : 08-11-2018 16:59:00 login id :
+- hi team, in every month income tax has been deduct in my salary hence, i need to submit income tax declaration form. please help me with the processes & submitting date for the same. regards rahul
+
+## intent:salaryrelease
+- account details and i&#39;d proof on mon, nov 5, 2018, 11:09 am associate inbound &lt;info@teamlease.com wrote: dear associate, as discussed, please share with us your bank statement and one government
+- barclays classification: restricted - external hi, kindly confirm the reason why i have not received salary for october 2018. employee
+- but my salary is not credited in my account.please check my salary is credited in check mode or account mode...
+- dear associate, name rishi kumar yadav employee id 884857 find out the bellow trail mail reference number of payment, were i have not received salary, kindly conform me status. thanks rishi yadav account & finance m +91 8585980052
+- dear client, my details are as follows, name- aqib mehabub madarkhan trainee id- tr10181486 dob- 01/01/1996 still i have not r ... 178 characters truncated ... payment & let me know by when i will receive my payment. best regards, aqib madarkhan nap/mfn11 tel. +91 253 610-4251
+- dear employer please contact me again on my registered mobile number on 8894430378 for any enquiry
+- dear madam /sir, my last year september month 2017 salary not release please release my salary. thanks with regards shaik saddam hussain safety officer employee code 1209823 on thu 16 aug, 2018, 11:02
+- dear mam, i m taking abt salary i don't need bonus mam i m saying mine salary date is 9th of every month rite so kindley this month i re ... 142 characters truncated ... plz manage u both n make release salary simple hope mine request will be approved.. thankyou shivam sharma aso nasik tl1306
+- dear sir &amp; mam,iam was working as associates with nestle and employee code-1444185. i regined on 16 the oct 2018. my salary expected to come 2nd or 3rd but still my salary is pending kindly release my salary.thanks &amp; regardsjiveshmob-8076526331employee code- 1444185.
+- dear sir , i will sent you a transaction copy of my salary account pls provide my salary today anish bhansali 1417611 hdb financial service limited
+- dear sir i have not received my salary the month of october and also the insentive the month of august and september. ... 10 characters truncated ... ed many time to my supervisor but she did not pick the call. plz pay my salary and insentive in my acct.thank youregards mandeep kaur sandhu null
+- dear sir my emp code - 1128209 please share me the salary status of oct 2018 as this is first time my salary delay . ear ... 11 characters truncated ... credit to account on last day month. as portal is not updating the status as released. regards deepak bansala 9821067731
+- dear sir my salary not credit sir please check me sir employee id 1459661 regards kalanithi on 16 oct 2018 8:57 am, &quot;associate inbound&quot; &lt;info@teamlease.com&gt; wrote: dear associate, thank
+- dear sir my salary status thank sunil kumar 1487106
+- dear sir pls my oct 2018 month salary is not credited ...... pls credit my oct month salary... it&#39;s urgent... already wheels emi pvt ltd .hr send my attendance &amp; other input.... so pls send my
+- dear sir pls my sallery status cha my joining date is 12/ 10/2018
+- dear sir why you not release my salary month of august till date ? plz revert resion regards kailash chandra sharma emp.537680
+- dear sir, i have not received my salary still now kindly update thanks&amp;regards judeantonyraj itw chemin
+- dear sir, i have not recived my salary of july month pls check and provide me my salary on monday othewise i have no option anish bhansali 1417611
+- dear sir, i would like to bring to your kind attention that employee this month salary is not credited.. kindly share status in priority base.. ... 1189 characters truncated ... virus protection before you open or detach any documents from this transmission. bajaj finance limited does not accept any liability for viruses
+- dear sir, my name is arman ali emp id 1478835 location- chhindwara my salary is not credited till now what&#39;s the reason kindly tell le...
+- dear sir, or madam please rectifie my salary not came my convinienc.
+- dear sir, plz confirmation share salary not realease.. i am waiting your valuable confirmation.. please solve this my problem &amp; release my salary.. name: amol tayade emp: 1339990 thanks &amp;
+- dear sir, reference to the subject, i have not received salary of oct 2018 month yet. previouly i received salary on 1st of every month. \ ... 82 characters truncated ... name - arpan taneja kindly please resolve this issue. or if there any issues please share to me. thanks and regards arpan taneja
+- dear sir, request you to kindly let me know status of salary for the month of october 2018. regards, trupti chavan
+- dear sir, sir regarding april month salary i dint recieve the salary of april month and you told we will release salary within 2 working days please rlease my salary
+- dear sir, why the salary is not credited till now? regards, jijo rajan emp id 634073
+- dear sir, with reference to above mail. today 3rd nov'18,our accounts team 28th oct'18 fund transfer to your account,utr details also shared on 29th nov'18. but still iam not getting salary. regards nagesh c m 594014 9986789439
+- dear sir/ mam, kindly help to get salary as we have not received it till date. have some extreme emergency seeking your support to get it credit.\ ... 193 characters truncated ... nwipro ge healthcare millennium city it park - tower ii| plot no.62, block dn, sector v, salt lake, kolkata - 700091 mobile: 9903020976
+- dear sir/ma'am, im a. esther evangelin stella working in schindler's india pvt ltd. i still didn't receive my salary. can you check and revert me. my employee id 1465020. kindly check and process my request. regards, a. esther evangelin stella
+- dear sir/madam i m not get my october month salary due to my bank account is closed in 24-oct-2018.. here with i attached statement of my account ... 19 characters truncated ... of letter mentioned account closing date.. i have sent my another bank details also.. kindly do the need ful.. name: shanmugam emp id: 226886
+- dear sir/madam i was an associate in team my emp code is 1259265 i have resigned from my duty and my last working day was on 31oct2018 now when will i get my salary and my final settlement please update me on this query
+- dear sir/madam my emp code is 1259265 i have resigned and got releave on 31oct 2018 its my last working day and i have not received my salary or settlement anything please update me on this query
+- dear sir/madam my oct-18 salary is not release. thanks kumar sudhir
+- dear sir/madam, i didn't get salary. so kindly check and resolve this issue as soon as possible. emp id : 1123320 thanks kaushal
+- dear sir/madam, i didn't get salary. so kindly check and resolve this issue as soon as possible. thanks kaushal
+- dear sir/madam, my october month salary is not received still now. according to teamlease associate salary releasing confirmation not reviewed ... 75 characters truncated ... :- name:-shrikant raghunath harale. emp code-1306682. dob:-01_march_1989. thanks & regards, shrikant-9922993163/9763129396
+- dear sir/madam, this is *kadari anil* employee i'd: *1486524*, working as a sales executive at jangaon branch. i didn't received my sal ... 89 characters truncated ... soon as possible. thank you , regards, kadari anil aadhar housing finance ltd sales executive jangaon branch 9908344757
+- dear sir/madam, what is the status of october salary... regards, prasanna angadi.
+- dear sir/madom, salary of last month october is not credited till now,please find a solution. regards, aravind rajendran mob;8943585092
+- dear sir/mam can update our salary status. thanks & regards archana gupta
+- dear sir/mam i have not received my september month salary and also my insentive for me bt she did not pick my phone.plz pay my salary and insentive in my acct.thank youregardsmandeep kaur sandhusent from my samsung galaxy smartphone.
+- dear sir/mam\xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 i have not received my october month salary and insentive the month of august ... 38 characters truncated ... supervisor many time but she did not answer the call. plz pay my salary and insentive in my acct.\xa0thank you\xa0regards\xa0mandeep kaur sandhu\xa0
+- dear sirs, request you to do the needful from your side to release my salary for october 2018. we hope that your connectivity problem in your server has been rectified. please help in releasing my
+- dear sushmita, i have not received my salary yet for octâ€™18 & when i approached team lease they sent me below mail that they need inputs from repo ... 179 characters truncated ... mpletely nil now ,even we will not get insurance amount now. kindly look into this on priority. thanks for your support. regards, pranitha
+- dear team i didn't get my salary of the oct can u please revert me back sathyanarayana .c
+- dear team lease i am present at site with your client in the month of october. let me know will you release my salary. weather i have no information about my further contract renewal. regards avinash nadda emp no. 455461
+- dear team please let me know when i get my salary. is it possible to provide before diwali? and is there diwali bonus
+- dear team, i have already submitted all my documents long back but still i did not received my salary yet. kindly look into it on high priority basis. with regards, surya +91 - 9618238599 ----------
+- dear team, i have not received my salary till date, please release the payment @ the earliest, dut to insufficient fund i am not able do our working activities. employee code- 1379981 regards gaurav yadav
+- dear team, i have not received my salary., please process on priority. name : balaji v emp code : 1448217 regards, balaji v chennai operations bajaj housing finance limited www.bajajfinserv.in http://www.bajajfinserv.in/
+- dear team, i have raised a query 14172 in telesonic hr portal for releasing my salary. pls do the needful on sat, nov 3, 2018 at 1:15 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear
+- dear team, my payment is not released yet. *regards,* *suraj gawade*
+- dear team, pfa the mail which came from teamlease team that associate priyanka pandey october salary is released. but till now salary not credit yet so please confirm and release salary on priority.
+- dear team, please confirm the status of salary. as discussed with mr. sudesh on 2nd nov, he told me that salary already released from teamlease side but we didnâ€™t gel till now. kindly confirm the same. thanks & regards anurag shukla 1401889 hr executive tata aia
+- dear team, please find my account details for relaase my salary in my account. name adarah bansal emp. id- 1461287 location - udaipur account no- 50100248702650 bank - hdfc bank ifsc code - hdfc0001273
+- dear team, please update as rumki have not received salary till now. emp id 546837 kindly check. click to pay your renewal online - https://www.dhflpramerica.com/policypaymentlogin cheque picked up
+- dear team, plz share me the status of salary .. emp id-1469154regards,vanya. sent from my samsung galaxy smartphone.
+- dear team, shirish dhimmar did not received salary as per attendance. kindly find here attendance register and rectify error. emp code tl1275118 -------- original message -------- subject: shrish
+- dear team, still i haven't received my oct month salary can i know when it can be released. emp-1408955 name-bharath c regards. bharath c
+- dear team,\xa0i have not received my salary for the month of octobar.\xa0kindly please help resolve this problem.\xa0 emp code - 1281235\xa0 thanks abhijit sadhukhan 9804364377
+- dear teamlease e name- deepak singh e code- 964271 my salary has not released till yet , please specify why my salay is not r ... 10 characters truncated ... ll yet. regards deepak singh it assistant abro mbpt baraut baghpat mob. 8191997022 email. deepak.kumar@abcsalon.org
+- dear teamlease, type : salary release nature : salary category : release concern : hi there , i did not get salary yet , hope your processing my salary its been 4 days since the actual date of salary .
+- dear teamlease, type : salary release nature : salary category : release concern : hi, i have not received my salary for the month of october please share the information by when it will release.
+- dear teamlease, type : salary release nature : salary category : release concern : till date my salary not received kindly provide status of my salary requested date : 11/03/2018 10:40:19 login id :
+- from: naveen veen &lt;naveen1995.nv@gmail.com&gt; date: tue, 23 oct 2018, 1:23 pm subject: sir kindly see my account details i didn&#39;t get my salary right now
+- gave me salary status e.code 1388330
+- hai madam sir plz relise my salary my id 1468428 thanks kumar k 9066480688 -------------------------------------------- on sat, 3/11/18, associate inbound &lt;info@teamlease.com&gt; wrote: subject:
+- hello dear, this is to remind you, that i haven't received my salary since 25th july, to till 17th october 2018. please check your records, and provide my dues asap. thanks and regards tulsi 1421482 8920221338
+- hello sir my salary not credit what happen sir
+- hello team , please confirm if again i have to send cancelled cheque to you or you check the details from the cheque which i have send you along ... 2185 characters truncated ... tact us on our associate hotline number: 60000655 prefix your location std code visit our associate portal: http://associate.teamlease.com/
+- hello there@teamlease, i was confirmed by your implant{hardest} at idfc bank that resource salaries would get credited by last evening. it didn't o committed timelines looks to be regular. can you pls let me know the exact date of salary credit agreed by team lease for idfc? thanks, mayur
+- hello, my employee code is 1469350. i have not received salary for oct; could you please check and revert. thanks, ankita
+- hi as i receive this email i want to confirm that no amount has been received by my bank please re check
+- hi i did not get my salary of last october month till now i don't know what is the problem and your app is third class not working properly ... 33 characters truncated ... e guys are from different consultancy they got the salary on time only you are not sending on time thanks and regards shubham sharma
+- hi i still dint get my salary of oct month... please shar the transaction id.... i need an update within tomorrow.... it&#39;s already 5days late, no one has informed me yet. plz cal me to 7899163369
+- hi ishik, the corcerned person mr. mayur shukla was already promised by teamlease spoc harpreet kaur that salary will be credited yesterday ... 548 characters truncated ... ngoing issue and we need to pay charges due to some error made by other person/team/department. my ecode is 807580. regards, vinayak akre
+- hi sir i am hariprasad.s working in freecharge my employee i'd is 1458995 when is the salary for this month please confirm me as soon as possible thanking you regards hariprasad.s
+- hi sir/mam, i am nikitha and my emp i&#39;d is 1471080 my reimbursement got approved but i did not get my salary and reimbursement.please solve the issue as soon as possible.
+- hi sir/medam my sep month salary is not released plz confirm
+- hi team, i have not received my salary, today is 5th nov. tomorrow is diwali. please release my salary today. thank you., k gopalakrishnan \ ... 871 characters truncated ... -560095.ph: 91-080-33002345, fax: 080-33243001 website: www.teamlease.com/ blog: http://teamlease.blogspot.com “putting india to work”
+- hi team, please find below trail mail of my final confirmation from client side. kindly release my salary from your end and let me when you wil ... 371 characters truncated ... sorted out on priority. employee no pims id associate name 1437815 174549 samadhan more regards, ganesh
+- hi team, still i&#39;m not received my salary month of october so please find the below attached bank statement and release my salary urgently.... and please change also bank ifsc code kkbk0008066
+- hi teamlease, can you confirm why my salary is not released as salary inputs has been submitted to you already. regards rupinder singh
+- hi teamlease, my employee id is 1363753. i haven't got my salary yet for month october. could you please confirm when i will get it.
+- hi this is sagar ambhure from paytm. i want to know that why my salary is not credited in my account. its already 2 november. my salary get credited in ac on or before 1st of month regularly. plz tell
+- hi till date i have not received my salary +gratuatiy amount.\xa0pls confirm when i will get my all settlement amount. sent from yahoo mail on android
+- hi, i didn't recieve my salary till now. regards, neetu upadhyay
+- hi, my name is pratik barot 1457630. i request you to share salary status .salary will get credited today itself right?? regards, pratik barot
+- hii now utr number is sent by yesterday when my salary will credit now? on tue 16 oct, 2018, 1:58 pm rihan saifi, &lt;rihansaifi.0@gmail.com&gt; wrote: please share the utr number mam on tue 16 oct,
+- hii team my name is shiv pratap singh.emp id 1435363.i have a salary issue my salary not release so pls release my salary of october month thanks & regards shiv pratap singh 8416962861
+- hii. still i didn't get my salary of october, can u pls let me know wn i ll get my salary.. can u pls update..
+- i am very amused to release salary plz release my reimbursement pending from last two months plz release it before diwali
+- i didn&#39;t get my salary. when will i get my salary?? i need of money. my employe id is 1481147. please checked and proceed it
+- i didn't receive salary
+- i didnt recieve salary sir. kindly check as soon as possible. thank you.
+- i have not received salary.behind reason that. my employd code. 1427432 asap. ajay verma s/o shankar lal verma dob. 27/09/1990 8787219263
+- i have send my new cheque leaf to your teamlease whatsapp number they can&#39;t give any replay about that.so can you please check those details and release my salary please and i have attched my new
+- i have shared again my account details please help to release my salary for oct-2018
+- i sohrab zaman employee id 1437925 have not received my salary for the month of october hence i request you to dispense my salary.
+- i want to know what is my salary status and is there any amount released in my account other than salary?
+- logeshwaran.murugaiyan@paytm.co rohit.viswam@paytm.com
+- my employee code 1454636 when will i get my salary its a festival.time plz provide my salary before diwali
+- my october month salary is not credited in my account
+- my salary is not credited to account bt show the salary in teamlease app... employee code - 1451870 name - sachin shahuraj shelke cell - 9975693909
+- my salary is not credited yet. request kindly deposit the salary as soon as possible. regards kuldeep sharma 9782883797
+- plz release my salary
+- reminder till we haven&#39;t received our salary, as per your invoice we already deposited your payment cheque on date 09.10.2018 and amount already debited from our a/c 11.10.2018. but till time our
+- respected sir #happy diwali# diwali at doorstep we need salary & bonus on this festival season month. i didn't get salary and diwali bonus til ... 120 characters truncated ... yees something extra as a bonus gifts present, sweets etc.. please do the needful. thanking you deepak singh emp. no. 388812 mob. 9891466508
+- respected sir / madam i didnt recive my salary so please inform me where was the problem employe code-gift0316
+- respected sir,/mam my stipend is not credit in my account deu to my ifsc code in change please check and resend my stipend my acc no 833601011001036 ifsc code vijb0008336 passbook copy is attached. on
+- respectfully, sir myself shivendra singh lefted bre sbi cards employee id 1421530 have a conversation with my reporting manager mr.saurabh pachaur ... 422 characters truncated ... y money details i already send you related with my bank account. thanking you your obediently shivendra singh bre sbi cards empl id 1421530
+- salary is not credited.
+- salary status??? please do as earliest.
+- sir i wat to clear my emi sir please release my salary sir if not over due he will put sir
+- sir, emp i&#39;d :1480313 i want inform you like write now i am get my salary kindly release my salary as soon as possible also i update my bank details kindly please do the need full.. thank you..
+- sir, still i didn't get my salary. rest of the people got salary. waste service from teamlease. name. sandesh emp. 1344993
+- sir, this is in only under process from last five day. how many days you have required for completing this status???? regards kuldeep sharma
+- u got the mail right then release my salary and settled my salary this is my iâ€™d 1012599 iam swathi loreal paris release now only
+- up-to now my salery not credit my account plz provide my salery fastly.
+- whats date today?? i dont know why only my salary got delayed.i have my own financial commitments to pay by 4th of every month.pl update me the status
+
+## intent:salaryslip
+- &quot;sir i can t able to open my salary slip for the month three month in my team lease app especially this month i can t able to open in team lease and also in tlconnect also the salary slip file is
+- *dear hr,* *kindly share me july, august and september 2018 month's salary slip please... in tl connect portal i got only october month sal ... 5 characters truncated ... lip... * *i need it for my personal reasons, kindly share me and do the needful...* *regards* *c sindhu* *emp id: 1332436*
+- ar teamlease, type : pay slip nature : salary related category : documents concern : as per my ctc my salary is 18709 and net take home salary per month is 17674 , i have already joined organization
+- because of portal issue i cant generate my salary slip emp 1464098 ph 9008873686
+- daer sir, > it is my humble request to you kindly send me a pay slip of > october month. as soon as possiable. > thankin you > regards > surendra singh > las anchor by panasonic > lucknow head quater > 9936816664 > employee code- 1448451 > > >
+- daer sir, it is my humble request to you kindly send me a pay slip of october month. as soon as possiable. thankin you regards surendra singh las anchor by panasonic lucknow head quater 9936816664 employee code- 1448451
+- daer sir, it is my humble request to you kindly send me a pay slip of september month. as soon as possiable. thankin you regards surendra singh las anchor by panasonic lucknow head quater 9936816664 employee code- 1448451
+- dear , please provide me my october-18 month salary slip as its not get open in employee portal thanks& regards vikas sehgal m.9729966544
+- dear all, hi iam looking for the latest pay slip of 3 month so i kindly request you to share my pay slip,please send it as soon as possible it&#39;s really very urgent. iam under a pay roll of team
+- dear anant, ramesh kumar- tl1390169 email id is not registered with teamlease & he needs his salary slip & esi card. pls guide. reg, rahul
+- dear associate please send me email of my payslip copy for the month of october 2018. i am not able to download from the app. thanking you nagamani 9177778200
+- dear client please share salary slip
+- dear concern i have required the salary slip of last three months. emp name : manoj madhukar dhule emp id : 680600 mobile no : 98 ... 371 characters truncated ... thor. thoughts or ideas expressed here may be incomplete or in error and subject to further review and change. thank you."
+- dear concern please send me salary slip of october 2018 name vijay kumar employee code 839089
+- dear concern, please provide the salary slip for the month of october 2018 asap. regards, gulshan kumar employee id 1468984 mobile no. 9871391243
+- dear madhuri, as per inputs received, previous month there was an incentive payout of inr 400, the same is not shared this month. attached payslips for reference. regards, uttiya. from: madhuri rajath
+- dear mam/sir kindly send me,my last months salary slip. october month my employe code is=1222425 name= sunil kumar thanks & regards sunil kumar 9910253546 tsi east delhi
+- dear manjunath. every option already tried, after that this mail has been sent to you. pls try to understand the problem and send payslip again. thanks for ur under standing. regards, amitkumar s mukherjee.
+- dear salary slip the month of oct 2018 is not show and download from team lease portal can you send my salary slip of oct 2018 on my this mail id empty id 1478836 rahul b rathod thanks
+- dear san, please provide current salary slip. login id : 954956 password : e459d
+- dear sir , my employee id is 993131 i want salary slip of september please forward me thanks you
+- dear sir , please find the attachment for salary slip update information in teamlease associate portal and link. my salary slip not update ... 14 characters truncated ... l salary slips send my mail id . please send my salary slip month of oct 2018 . with regards satpal singh employe code-847591
+- dear sir ,good morning emp i'd _1458965 needed payslip of aug, sep and oct . actually i have received a payslip of october month in moblie b ... 12 characters truncated ... n flie doesn't not support and format it cannot display in any format pdf, wps and not shown in release aslo.pls kindly verify my issues.
+- dear sir / madam please update on urgent basis .salery slip. name - krishan chawla emp-id - 1171859 thanks & regards krishan chawla
+- dear sir / mam. i have request , pls send me my pay slip month of october 2018. employee name : mohan lal yadav employee no : 951398 thanks & regards mohan yadav contact no ; +91-9694545453
+- dear sir /ma'am please send me a salary payslip for the month of october
+- dear sir i am amaresh mohanty from zte telecom , odisha having emp no-858137. my salary slip for the month of\xa0 august & october-2018 is not available in portal.kindly send it to my personal mail id. thanking youamaresh mohanty9937586422
+- dear sir i am requested mohan s. kanayalkar i'd no 963952. my salary slip march to october not get it. please give me because my personnel work. to be need full. regards mohan.
+- dear sir i bhadoria ajit the emoloye of your agency , sir , as per your instructions i had downloaded teamlease app but sallary slip not there... warm regards, > associate relations > teamlease services ltd,6th floor, bmtc commercial complex, 80 ft road, > koramangala – 560095 >
+- dear sir i inform you that please send me my last month salary slip of september i request to u send me asap. thanking you
+- dear sir i inform you that please send me september salary slip asap. thanking
+- dear sir i want my october salary slip...kindly send me
+- dear sir i want my pay slip in my given mail id as soon as possible. the team lease app is not working. its very urgent do the needful
+- dear sir i would like to to say please send me september salary silp asap thanking
+- dear sir kindly arrange to send the salary slip emp code 1139515 name rakesh kumar branch palampur regards rakesh 9418414654 palampur
+- dear sir my name is rajiv mohammad id 1474879 plz send me salary slip on my email id
+- dear sir my portal is not opening and i'm not gatting salary slip..pls provide my slip my employee id is 1457398 thanx chandan kumar
+- dear sir not received pay slip march to october. to be need full my personnel work. i'd no____176362594 regards mohan'
+- dear sir please give ma salery selips selected months. october 2016 november 2016 april 2017 may 2017 june 2017 name - devender kumar emp. code - 1079333 m. no - 8700880115 thanx & regard devender kumar
+- dear sir please provide the salery apr may jun july
+- dear sir please provide the salery slip apr 2018 to nov 2018 usar id-tr10155272 name- mangilal mandal regards :- mangnilal mandal
+- dear sir please send me month of august 2018 pay slip. regards hanook borugadda 9177542532.
+- dear sir plz provide the salary slip for the below menion case . teamlease i'd - 1429251
+- dear sir plz send me my salary slip my employer code is 1343031 paytm nandan bhadana 9561547289
+- dear sir plz send me urgent bassis my sallery slip month of sep and oct thanx as soon as possible plz send me
+- dear sir, i am not say to my password forgot pls send my payslip for the month of october your teamlease app is very bad working
+- dear sir, iam unable to access google. kindly send my salary slip oct-18 regards liza. from: ks, liza sent: wednesday, october 31, 2018 2:17 pm to: &#39;associate inbound&#39; &lt;info@teamlease.com
+- dear sir, kindly provide pay slip of month oct-2018 and pf statment upto till month. id:546251 name:hitesh prajapati regards, hitesh prajapati
+- dear sir, kindly refer the trail mail. my pay slip for oct.2018 is still not available in the portal and it has not been credited to my bank account. requesting for the date on which our salary will be
+- dear sir, kindly send the salary slip for month of october 2018 details are follow. name : mary nitin rajput emp : 584910 ... 359 characters truncated ... thor. thoughts or ideas expressed here may be incomplete or in error and subject to further review and change. thank you."
+- dear sir, my employee id is 1482428 my name is kulbhusan singh thakur please send my salary slip on my mail id. thanks
+- dear sir, please arrange the last 3months payslips august &amp; september and october&quot; 2018 thanks g,srinivasgoud emp id :968762 mobile no:9885268666, mail i&#39;d: srrinivasulu.gundrathi@gmail.
+- dear sir, please note that all necessary confirmation has been given to you by your client m/s. ingersoll rand. please ensure that my october pay slip is visible in the portal and the same should be
+- dear sir, please provide me the salary slip for the month of november 2018 as early as possible. emp is- 481294 regards, shravan 9415793431
+- dear sir, please provide my releaveing letter and october month salary slip because i need to submit these documents in my company where i got the job. so please send it as soon as possible.
+- dear sir, please provide us salary slip month of apr to oct 2018 regards ravi dewangan emp 1175555
+- dear sir, please send my oct-2018 salary slip sir. i didn't get even sept-2018 salary slip.. it's very urgent for me sir. so please send at ... 32 characters truncated ... ing you sir.. regards phanisekhar reddy.n emp no: 1424878 team lease bajaj finance limited marathahalli branch bangalore
+- dear sir, please sent me payslip on registered email id. thank you.
+- dear sir, plz send me salary slip on my email id
+- dear sir, sir i am ponnaiah joining date 25/09/2018 to 31/10/2018. salary not credit sir please update payslip, sa ... 51 characters truncated ... name : ponnaiah c branch : pudukkottai aranthangi thanks & regards ponnaiah c
+- dear sir, with due respectfully, i beg to state that please issu my pay slip for oct18 so i request you kindly issu as soon as possible & oblised. regards, prakash das nagaon assam.
+- dear sir,please send me previous 3month salary slipaugust- 2018 to octeber-2018 provide kindly treat the matter most urgent.employee name- prabhaka ... 1498 characters truncated ... u open or detach any documents from this transmission. bajaj finance ltd. and / or its group companies do not accept any liability for viruses.
+- dear sir/ madam, as we are unable to access the employee portal. so please send my salary slip for the month of oct-2018. awaiting for your response. regards, laxman gandhale
+- dear sir/ madam, kindly forward me salary slip for the month of october 2018. regards, laxman gandhale emp no. 1445130
+- dear sir/ madam, respected, pls show the &quot;department name&quot;and &quot;bank ifsc code &quot;at salary slip. thanks &amp; regard e..code : 1174672 e..name : salarullah khan doj : 10 april 2017.
+- dear sir/ madam. pls send me the salary slip of month of october. the salary slip has been sent by you which is not open. show the error'' ... 36 characters truncated ... he the salary slip again and pls check it before send it. login id : *1467606.* *regards,* *amitkumar s mukherjee.*
+- dear sir/ mam my employ id 1459360 in sbi card need september month 2018 salary slip plz provide me on urgent bases . thanks regards rintu emp. id 1459360
+- dear sir/ma'am i'm requesting you for providing me the payslip. i ain't get my payslip till 10 months.. please provide my payslipfrom j ... 52 characters truncated ... thanks with regards girendra maurya aplab limited faizabad 8448189316 -- thanks & regards, girendra maurya
+- dear sir/madam i am struggling to download my salary slip through mobile app, so kindly provide me latest 3 months releases. it is very urgent. thanks and regards name :zameer pasha father's name : abdul bashir i'd : 1169405
+- dear sir/madam my name is gaurav singh.presently i am work in saahaj milk producer company limted agra.my employee id is 1259663 so i re ... 1 characters truncated ... ueted to you please send my pay slip & mp password in mail id. my mail id is . gss.512156@gmail.com thanks & regards gaurav singh
+- dear sir/madam update in pay slip
+- dear sir/madam, employee name- krishendu sarkar employee id- 1398551 month of oct 18 system payslip folder is swing file not found. so please send me oct 18 my pay slip. i have waiting for your reply..
+- dear sir/madam, my name is ramchandra patil and my id no 628745.from pune . i am working in kirloskar company as a paramedic . my octomber salary slip showing 7 days absent but i am full month present
+- dear sir/madam, please send the pay slip month of oct 18. thanks & regards kailash
+- dear sir/madam, please send us my salary slip for month of oct 2018 team lease emp . no 535247 its urgent, thank & regards, navnath mhatre mob. no.9921496934
+- dear sir/madam, with due respect,i beg to inform u that please send me last two month salary pay slip as soon as ... 12 characters truncated ... t is very urgent to me.send me in this mail i'd. regard. subrata ganguly. emp id 621747.
+- dear sir/madem, pls check this salary slip this is not my salary slip. pls check emp. code & send me my salary slip. as soon as possible. emp. code - 819556name\xa0 \xa0 \xa0 \xa0 \xa0- prashant goradia thanks prashant goradia
+- dear sir/madem,\xa0not a download my oct'18 salary slip in teamlease portal application so pls send on mail my oct'18 salary slip immediately.\xa0emp. code - 819556name.\xa0 \xa0 \xa0 \xa0 - prashant goradia\xa0\xa0thanks & regards\xa0prashant goradia
+- dear sir/maidam kindly provide me october month salary slip. emp name - avinash kumar singh emp code - 604078
+- dear sir/mam please give me last 6 month salary sleep & form 60 last 3 years thanks&regards shubham yadav 8827337062
+- dear sir/mam please send me my last six month salary sleep thanks vicky kumar imp id - 1142675
+- dear sir/mam please sent my last nov 2018 salary slip..not received in app my salary slip please sent...it urgent required.. sent this mail i&#39;d ashishbhor2180@gmail.com regards ashish b
+- dear sir/mam salary slip not showing in team lease portal and not receive any mail for salary slip so kindly find employee details and provide oct-18 salary slip asap. pls find print screen for your
+- dear sir/mam, as per your trailing mail i have update my salary slip &amp; bank statement. kindly go through the same. -- thanks &amp; regards shiba prasad mohanty, mob: +91-8128012873
+- dear sir/mam, i am requesting you please send my salary slip from july to october 2018. name- l poniel rao employee/associate code- 1296547 regards l poniel rao mob no- 7735135959
+- dear sir/mam, my name is vishal cahaudhari i am employee of you company . i am facing some issue regarding my salry slip .when i logged in to give urlhttps://tlconnect.teamlease.com/securelogin once
+- dear sir/mam, with due respect, i beg to say that i can't get my salary slip because i don't have my teamlease id and password so p ... 178 characters truncated ... ahaj milk producer company agra designation:- chemist department:- quality assurance email:- dharmraj390@gmail.com cont.:- 8954054065
+- dear sir/mami request to you that pls. send my salary slip month of oct.-18&nbsp;id: 678010chandan nathmo no. 08860217065
+- dear sir/mami request to you that pls. send my salary slip month of oct.-18.&nbsp;id: 678010chandan nathmo no. 08860217065
+- dear sir/man pls send my 3 month sallery slip. my employer code-1100704
+- dear sir/man, please send my salary slip august2018 to october2018.my emp.no.733365. thanks & regards. rohit kumar 9814288932
+- dear sir\xa0 please provide my details of my salary fnf.\xa0 . my emp . id.- 1116202\xa0 \xa0and give the details of salary slip of june in imideat thanks & regards ambrish\xa0 | | virus-free. www.avg.com |
+- dear sirpls send my sallery slip for themonth of october 2018emp i'd 1476800mob7083433565omprakash mishra
+- dear sirs, i have been informed by your colleague that my october salary slip has been prepared, then why can&#39;t it be viewed in the portal as earlier. if there are any pending issues for release of
+- dear team got salary just now thank you please send my payslip of this month
+- dear team i am unable to download my oct 18 month salary slip boz some sytem error ...plz send copy in my mail. thanks neelam jethani
+- dear team kindly provide augest and oct sallery slip employe no 1437805 employee name deepak kumar t ... 656 characters truncated ... il in error please delete it and notify the sender immediately. before opening any mail and attachments please check them for viruses and defect.
+- dear team kindly send me my salary slip on urgent basis for the month of october 2018 coz i am not able to download from application
+- dear team kindly share my last month payslip
+- dear team lease i downloaded my oct payslip bt it&#39;s error with open file. error is file not found so please resolve and send me my 2 month payslip in pdf format it&#39;s urgen base thank you
+- dear team lease team\xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 i am varsha sahare from hul. my employee code is 866141.please send me\xa0 payment slip of april\xa0 2017 and may 2017 for submitt pf form.
+- dear team lease, kindly note my uan number as provided in my salary slip is showing inactive, when i am trying to search in epfo website, although an particular amount is been deducted from my salary
+- dear team members \xa0 \xa0 \xa0 \xa0 \xa0 \xa0 \xa0i am y shravan kumar , emp no 1478624, i am unable to open my team lease app. i required my last month payslip, please do the needful. regards,y shravan kumar99856792909030066554.
+- dear team please share my october month 2018 pay slip. iam unable regards avinash madari emp id:1327650
+- dear team pls provide the my last pay slip and pf statement its required urgent. emp.code 547933 name -samim
+- dear team unable to view my payslips on our team lease app. hence kindly send last two months payslip and do need full. please follow the attached hyperlink to an important disclaimer
+- dear team&#39; i am unable to download my payslip on team lease app portal .please do it needfull please find below mentioned screenshot............ regards phanisekhar reddy. n 1424878 bajaj finance
+- dear team, can you plz provide me my pay slip for the month of august 2018 my name is gautam nath and i'd no is 1440649 regards,gautam nath\xa0
+- dear team, emp id:474508 i requesting in u all, i required pay slip of july, august & september please do needful as soon as possible. regards siddalingaiah
+- dear team, greetings of the day. my employees code is 631563. i am not getting my salary slip from so may months. please do needful and arrange my salary slip with mail id.
+- dear team, i am still to get my payslip for the month of october. please provide me. my sesa id is 516659. my emp id is 1436582. regards, nitesh choudhary senior engineer-sales proximity -sales global
+- dear team, i mr. sanjay kumar emp code: 697347, mle mohali. pls send me my latest salary revision letter & salary slip through mail because i am not received it on my mail id. thanks & regards, sanjay kumar emp code:697347 mle: mohali depot: chandigarh
+- dear team, i unable to open my september month payslip. hence i request you to kindly send my payslip month of september below mention mail id. mail id-jitenderbehera806@gmail.com thanks & regards, jitendra behera
+- dear team, kindly send the revised salary latter.
+- dear team, my emp i'd is 694636 i tried several time to login by resetting password. but every time message showing access blocked. pls send me the 3 month salary slip on mail on urgent basis. pls send me the haa
+- dear team, please give me last 6 months salary slips. name - nilesh baliram panchal emp no- 232263 mobile no- 9869838110 mail id- nileshpanchal06@gmail.com
+- dear team, please help to resolve the issue as my october month salary slip is not uploaded on the portal. need the pay slip on urgent basis. facing error while downloading the pay slip..
+- dear team, please send previous 3month salary slip august- 2018 to octeber-2018 of following employee kindly treat the matter most urgent. employee name- prabhakar dalei employee code- 1300161
+- dear team, please send the salary sleep for the month of october 2018. this salary sleep not updated in our teamlease app and portal. emp. code. 1181512 regards,
+- dear team, please stop dispatch hard copy of my salary slip this is request to you
+- dear team, please update or share the salary slip on urgent basis regards manik mahajan emp id 1317504 begin forwarded message:
+- dear team, please update pay slip. regards manik mahajan 1317504
+- dear team, since i am not able to open october month payslip through teamlease application.kindly check and do needful by sending the paysl ... 68 characters truncated ... emp name : santhoshkumar a emp id : 958330 mail id : santhose.bbm@gmail.com regards santhoshkumar a 9035826339
+- dear team, thanks for your response there is a variation in candidate joining date as per your confirmation 11 jun 2018 as per pay slip 10 may 2018 kindly authenticate the attached pay slip --------
+- dear team, this is krishnamoorthi my october month incentive is mismatch in the payslip kindly check and update i will give the all the details given below my insurance incentive:25410 my business
+- dear team,\xa0kindly provide me 3 months aug,sep and oct-2018 salary slips. my emp code:951548client : zte telecom india pvt ltd. thanks and regard,pravin chavan.mob: 9967570958 / 7020192504
+- dear team. i am pritija chorge employee code - 1160603 i am not able to recive my salary slip from april 2018. can you please provide me the same. thanks and regards pritija chorge
+- dear teamlease please provide my all salary slip fro june to october your app is not working regards abrar halwai icici lombard
+- dear teamlease team, please provide me salary slip of month oct & sep month because some official purpose...so arrange me asap emp code-1457711 regards, nirmal nirvani indore
+- dear teamlease, type : employement verification nature : others category : others concern : dear team, my october payslip not genrate, please up date my payslip as.code - 1474813 requested date : 11/03
+- dear teamlease, type : joining kit nature : employment category : documents concern : please update below details to my payslip 1.pan no - bjspa0438a 2.pf no requested date : 11/03/2018 11:09:27 login
+- dear teamlease, type : mediclaim cheque nature : cheques &amp; pay slips category : dispatch contact no : 123456789123456 requested date : 03-11-2018 15:57:14 login id : ssss@teamlease.com email id :
+- dear teamlease, type : pay slip nature : salary related category : documents concern : all pay slip send to mail requested date : 02-11-2018 16:25:18 login id : pc577388@gmail.com email id : pc577388@
+- dear teamlease, type : pay slip nature : salary related category : documents concern : dear sir month of october 18 my salary slip not see in to system so please slove. requested date : 11/02/2018 21:
+- dear teamlease, type : pay slip nature : salary related category : documents concern : dear team, im unable to view my salary slip month of oct-2018, please rectify this issue on priority and do the
+- dear teamlease, type : pay slip nature : salary related category : documents concern : dear team, unable to open the salary slip of oct-18. please resend the asap... requested date : 11/03/2018 12:37:
+- dear teamlease, type : pay slip nature : salary related category : documents concern : hi i am not able to find the salary slip for the month of october and i want it on an urgent basis . requested
+- dear teamlease, type : pay slip nature : salary related category : documents concern : i am unable to download my october payslip requested date : 05-11-2018 18:56:50 login id : srivastavaraj985@gmail.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : i dont see the september month pay slip. requested date : 05-11-2018 13:51:30 login id : rahulizone98@gmail.com
+- dear teamlease, type : pay slip nature : salary related category : documents concern : i have not taken any leave with sunday since joining requested date : 02-11-2018 16:53:08 login id : neeraj.davp@
+- dear teamlease, type : pay slip nature : salary related category : documents concern : i need payslip for the month of oct/2018 but when i using teamlese app to download the document it says not found.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : my salary not paid requested date : 05-11-2018 10:32:21 login id : ammashaik.123@gmail.com email id : ammashaik.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : need august and october 2018 salary slip asap unable to download from portal - error message file not found please
+- dear teamlease, type : pay slip nature : salary related category : documents concern : need payslip for october month requested date : 04-11-2018 19:40:38 login id : rahmanmadhar97@gmail.com email id :
+- dear teamlease, type : pay slip nature : salary related category : documents concern : no salary in account requested date : 05-11-2018 10:28:37 login id : ammashaik.123@gmail.com email id : ammashaik.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : not able to download october 2018 month salary slip. requested date : 05-11-2018 16:52:47 login id : dinesh.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : pay slip document is not available, after downloading the pay slip document it shows that file not found.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : payslip requested date : 11/03/2018 00:43:24 login id : muthumani@gmail.com email id : muthumani@gmail.com regards
+- dear teamlease, type : pay slip nature : salary related category : documents concern : payslip requested date : 11/03/2018 00:43:59 login id : muthumani@gmail.com email id : muthumani@gmail.com regards
+- dear teamlease, type : pay slip nature : salary related category : documents concern : please let me know the complete process how to get the payslip of latest months requested date : 05-11-2018 09:58:
+- dear teamlease, type : pay slip nature : salary related category : documents concern : please provide the pay slip for sept, oct 2018. requested date : 05-11-2018 20:44:15 login id : s.kumar@mapei.co.
+- dear teamlease, type : pay slip nature : salary related category : documents concern : plz mail october payslip requested date : 11/03/2018 07:39:25 login id : rajeshweradsen@gmail.com email id :
+- dear teamlease, type : pay slip nature : salary related category : documents concern : sir my mobile teamlease app not working so please check . requested date : 04-11-2018 16:34:38 login id :
+- dear teamlease, type : pay slip nature : salary related category : documents concern : sir,maam my lsat mounth salary slip is not open. my last mounth salary is deduct. pleas help me requested date :
+- dear teamlease, type : pay slip nature : salary related category : documents concern : till now am not getting the august month salary slips please upload regarding this i have talk to customer of team
+- dear teamlease, type : pay slip nature : salary related category : documents concern : unable to help my oct salary slip, please send by registered mail id in pdf format. requested date : 02-11-2018 16
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 7404209900 requested date : 04-11-2018 16:35:11 login id : surinderv674@gmail.com email id : surinderv674@gmail
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 7893769114 requested date : 05-11-2018 10:26:16 login id : ammashaik.123@gmail.com email id : ammashaik.123@
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 7893769114 requested date : 05-11-2018 11:02:36 login id : ammashaik.123@gmail.com email id : ammashaik.123@
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 8007759560 requested date : 05-11-2018 12:49:25 login id : dibendu.audacty.khawas@gmail.com email id : dibendu.
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 8105262799 requested date : 05-11-2018 11:17:04 login id : shivuchandike9353@gmail.com email id :
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 8722636315 requested date : 04-11-2018 15:50:27 login id : paru8722@gmail.com email id : paru8722@gmail.com
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 8722636315 requested date : 04-11-2018 15:50:28 login id : paru8722@gmail.com email id : paru8722@gmail.com
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 9092266776 requested date : 11/03/2018 12:40:26 login id : anbumani07@outlook.com email id : anbumani07@outlook
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 91—9975646964 requested date : 11/03/2018 13:55:13 login id : bawanepankaj.jobs9@gmail.com email id :
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 9482234508 requested date : 11/03/2018 12:37:41 login id : kranthi.kranthi42@gmail.com email id : kranthi.
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 9593155323 requested date : 11/03/2018 12:32:48 login id : k.jhon.sarkar@gmail.com email id : k.jhon.sarkar@
+- dear teamlease, type : pay slip nature : salary related category : documents contact no : 9861136281 requested date : 02-11-2018 17:26:45 login id : edusysrudra@gmail.com email id : edusysrudra@gmail.
+- dear teamlease, type : pay slips nature : cheques &amp; pay slips category : dispatch concern : i won&#39;t 2017 september, october and november month pay slip requested date : 11/03/2018 10:32:41
+- dear teamlease, type : pay slips nature : cheques &amp; pay slips category : dispatch concern : pay slip not recieved requested date : 06-11-2018 10:43:14 login id : niranjanmurthy366@gmail.com email
+- dear teamlease, type : pay slips nature : cheques &amp; pay slips category : dispatch concern : till now am not getting the august month salary slips please upload regarding this i have talk to
+- dear teamlease, type : pay slips nature : cheques &amp; pay slips category : dispatch concern : unable to download oct month pay slip requested date : 05-11-2018 18:47:51 login id : yugandhar9bujji@
+- dear teamlease, type : reimbursement nature : reimbursement category : release concern : plz release my 1 day salary .last month 1 lop mark may oct. salary slip so plz check and release .... requested
+- dear teamlease, type : salary calrifications nature : salary category : release concern : i am unable to open my salary slip pdf file. please solve the issue as soon as possible requested date : 11/03/
+- dear teamlease, type : salary cheque nature : cheques &amp; pay slips category : dispatch contact no : 9945342999 requested date : 05-11-2018 18:30:23 login id : amruthesh96@gmail.com email id :
+- dear teamlease, type : salary release nature : salary category : release concern : dear sir/ma&#39;am, i want to download my last two months salary slips. but i could not find option, from where i can
+- dear teamlease, type : salary release nature : salary category : release concern : sir, please solve my issue when i downloaded the salary slip it is unable to open and this is not opening in my pc
+- dear teamlease, type : salary release nature : salary category : release concern : unable to open salary slip. please provide in supportable format iepdf requested date : 11/03/2018 15:36:18 login id :
+- dear tl, please note i have not received october payslip on tl connect, kindly send the same on my email. employ id: 1474781 name : anupuram kartheek thanks & regards, kartheek 9912410203
+- dear tram, i am unable to download my oct. payslip ,so please help
+- dear. sir/madam this is bhukya ramesh iam working from hair my id:1483448 i want my pay slip please send me my pay slip. request sir/madam thank you
+- deat team, thats the issue i am facing. m not able yo dowload it. facing some issue..error beingno file found please share my october month salary slip or do fix the error regards manik 1317504
+- e â€“ code 1470767 required salary slip also bhushan gangurde ---------------------------------------------------------------------------------------------------------------------------------------------
+- emp.no.1481205 name -arun sharma s/o -mahesh kumar sharma d.o.b -02-07-1993 email i'd. arun.jrmp@gmail. com mo.9799342353 please send my salary slip and teamlease id and password and pf detail
+- gud afternoon teamlease ,my self rajesh rao s as per my employe id 1405700 required recent three month pay slip i'm requesting to send to this mail id thank you
+- hello sir/madam, i didn't got my pay slip updated of month of september in my teamlease app.i mailed many time but no response has been taken.plz help me in this issue. thanks & regards sudip 1420762 sesa514668
+- hello team, request you to upload october 2018 salary slip as it is showing â€œfile not foundâ€ thank you and regards, swapnalee hr executive-talent acquisition from: swapnali.rodge@bizsupporta.com [
+- hello team, this is ankita prakash gayal emp id1445536,employee of bajaj finserv ltd, want to inform you that i did'nt get my october mon ... 9 characters truncated ... slip. i am in a urgent need of salary slip for some personal reason. please provide the same asap. regards, ankita prakash gayal
+- hello team, this is vishnu prathap id - 1396894, kindly provide the october month payslip. for your information payslip was not there in the teamlease portal. -- regards, vishnu prathap r., +91 99410 33915
+- hello, can you please forward me the salary slip of month october 2018. id: 742043 thank you. best regards, virshree pavaskar document controller , information management india aker solutions tel: +
+- hello, i want my all month sallery slip pdf file. because i got monthly sallery is less than company offer letter thats why my pay slip is share to my comapany hr for correct payment. kindly plz help me thanks
+- hello, my user id: 785062 i cant seen my last month october payslip.please help resend by mail my october month salery payslip.
+- hello.... my name is sanket sakharam jadhav hdb finance service ltd ambernath. tl 1417618 teamlease payroll i have required my salery slip password..... thankyou
+- hi ... name : shivukumar kallappa chandike employee id : 1156048 i need my last month oct/2018 salary slip can u please send me soft copy...
+- hi all this is to inform you that in month of october 18 in my salary slip my salary is reflecting 24608. but in my bant account 24208.kindly share the details on where i&#39;m deducted. kindly find
+- hi i am vikas kumar choudhary employe code 1461189, is working in magic bricks on team lease payroll. i want my october salary slip on my mail ... 106 characters truncated ... ve to submit it in bank. kindly send my salary slip on immediate basis on my mail choudhary.sonal886@gmail.com. i will be thankful to you .
+- hi i am vikas kumar choudhary working in magic bricks. my employ i'd is 1461189 would not be able to download my salary slip for app. there it is\ ... 76 characters truncated ... mmediate basis because i have to submit my salary slip in bank. my mail i'd is choudhary.sonal886@gmail.com. i will be thankful to you.
+- hi i done with my all full & final settlement with teamleas thanks & regards suraj gupta mob# 8108977164
+- hi i haven&#39;t received salary slip after mar-2017 please provide me the salary slip of last 6 months after april employee id- 1037072 regards komal sharma michelin india private limited 3rd floor,
+- hi i'm shubhajit bhattacharjee from krishnagar nadia... i'm isr of gcpl... i need to my salary payslip form september 17 to update... p ... 56 characters truncated ... thank you shubhajit bhattacharjee. ph 7001143234
+- hi imran, please share the salary slip for *september and october month *i need it on urgent. as i have already downloaded from the app but ... 189 characters truncated ... slip of *september and october* month as i am > unable to download from the app. > > emp id : 1432336 > paytm emp: 3010228 > >
+- hi it&#39;s not downloading the salary slip from teamleas app, so please provide the salary slip on mail . thanks
+- hi myself srinivas bk employe code : 988960 i request you to send me the pay slip of october month 2018 through mail. thank you
+- hi october month salary slip is not uploaded to teamlease site. so please upload it or provided it directly thanks & regards suraj gupta mob# 8108977164
+- hi pfa this mail is regarding for september month payslip to the employee id - 1408952
+- hi please follow the attached steps to download the salary slips/generate the new password from: meenakshi pathak [mailto:meenakshi.pathak@ocltp.com] sent: 05 november 2018 13:49 to: imran ahmad khan;
+- hi sir and mam please share me salary slip month october em 1308570 sanjeev kumar
+- hi sir iam mithun.kk from kerala.i working in bajaj finservteam lease as a assistant manager in kannur my october month payslip cannot op ... 30 characters truncated ... payslip to my mail employee code:1457709 employee name: mithun kk designation: assistant manager regards mithun kk
+- hi sir, kindly provide me with the payslip of october month. employee id - 1474815 name- shubham kumar regards shubham
+- hi sir,\xa0 i am g v n d sudheer kumar of e.id: 1413684, sir please mail me my pay slips of months september&october for my glance. thanks & regardsg v n d sudheer kumaremp.id 1413684ph: 9533714724
+- hi sir. i wand my salary slip pls very urgent emp:49387 bibin.a
+- hi sir/mam kindly send my salary slip for last 4 month.
+- hi team, emp id: 1444212 kindly help me get the october &amp; november salary slip, i am unable to download in panel. regards, raju.sj
+- hi team, employee id - 1477380 in teamlease portal when i am logging in ''options'' section is not getting reflected on the dashboard for downloading the payslip.could you please help me out with this ? regards anjali raghuwanshi 7999534344
+- hi team, i am unable to download my october month payslip via teamlease app. kindly generate and send the payslip of october month to this mail id. thank you. please find my employee details below. employee id: 1455324 name: madhar rahman a
+- hi team, i am unable to download the salary slips for the month of october and august from tl portal. kindly provide the same immediately best, deepika angane senior operation executive - risk
+- hi team, i am unable to download the salary slips for the month of october and august from tl portal. kindly provide the same immediately name - deepika j angane employee id – 626609 department - rms
+- hi team, i am unable to open my pay slip from teamlease app as well as portal. it is showing invalid file format. please suggest. secondly pf number from teamlease is not reflecting/linked in my uan portal. please resolve both the queries at the earliest. regards,prayas
+- hi team, i cannot download my salary slip from portal. emp id : 826919 name : ravindra yeravil. regards, ravindra.
+- hi team, i&#39;m unable to download salary slip from the online portal. i can download august and september month, but unable to download october month. request you to provide attachment on the mail.
+- hi team, kindly update bank ifsc code number in my salary slip. a/c - 055501548743 ifsc code - icic0001249
+- hi team, my september payslip is not present in teamlease app, kindly provide on main. regards nishant chauhan
+- hi team, please find the below banking details for updation. employee id -1467909 name-anjali negi date of birth-03/07/1994 client-nestle \ ... 62 characters truncated ... ement and also sharing you the account details. for verification of the account number i am you the salary slip of my previous employer .
+- hi team, please provide the salary slip of the last 3 months on my email. -- social media monal kriti -- disclaimer ... 634 characters truncated ... are present in this email, the company cannot accept responsibility for any loss or damage arising from the use of this email or attachments.
+- hi team, please share the salary slip of *september and october* month as i am unable to download from the app. emp id : 1432336 paytm emp: 3010228
+- hi team, please share the salary slip of below associate for the month of oct 2018 1380757 thanks &amp; regards, ashutosh ranpise team staffing mob - 8623000704 from: swapnil nigam [mailto:swapnil.
+- hi team, pls share the pay slip of subjected employee or uan no pls best regards, malathi chowdary operational manager- hyderabad a & b golden edifice building khairatabad hyderabad-500005 m: 8886626108 email: malathi.r@iqor.com<mailto:malathi.r@iqor.com>
+- hi team, plz share my september 2018 salary slip as when i trying to download the same from portal, facing some error. all other months ... 32 characters truncated ... ly. so i requested you to plz share the september 2018 salary slip asap paytm e code - 3028366 team lease e code - 1308643
+- hi team, this is to inform you that from last two months i am facing an issue while viewing/ downloading monthly payslip through teamlease portal, as it&#39;s reflecting on dashboard. but when i
+- hi team, whenever i am trying to download salary slip from portal getting corrupted file.so unable to check salary slip.please check and up ... 226 characters truncated ... new singapore mall gomti nagar scheme lucknow -226010 *mob :- +919888119068 **email id:- anuj.ks@flipkart.com <vasim.ahmad@flipkart.com> *
+- hi this is ismail ahmed barbhuiya from inorbit shopper stop.working as staff of usps kids.im not getting salary sleep.so plz share my salary sleep in this same mail id.
+- hi, am not able to download the pay slip from the app, it will download but there is no data in the downloaded sheet, it is emty, pls do the needful, below is my emp id, 1475341
+- hi, i am unable to download my salary slip from the teamlease portal for the month of august and october 2018, the error message say's file no ... 443 characters truncated ... troy this message. for more information on wpp's business ethical standards and corporate responsibility policies, please refer to wpp's website.
+- hi, i just need my correct payslip. kindly find the attached pdf in my previous email. that payslip is basically blank for october. i request you to kindly send me the correct payslip immediately. thank you! regards, sumedh palsule
+- hi, i required salary slip for last 4 months, please share on mail . i'm unable to login into portal. empid 1419507 praveen kumar 9939077070
+- hi, i want sep 2018 salary slip. please send. on sat, 3 nov 2018, 3:53 pm info team &lt;info@teamlease.com wrote: dear associate, thank you for writing to us, attached is the soft copy of oct&quot;18
+- hi, kindly check and help to get update my salary slip for the month of oct'2018 , which is still not showing on your portal, request you t ... 26 characters truncated ... the needful asap, very bad exp. every time new problem has been created. note- i need my salary slip last 3 month i.e. oct - august
+- hi, my payroll has been successfully processed for october for 31 days. but the payslip available for download on portal shows 0 work days and salary as 0. i request you to kindly send me the corrected
+- hi, my self m.k.chouhan my employee no.-1460098 i'm unable to dawn load my salary slip this month , while going dawn load problem showing file is damage. kindkly send me another salary slip, ybr m.k. chouhan
+- hi, october&#39;18 payslip is downloading but showing error while opening. br, harish
+- hi, pf no.is still missing in my salary slip. so can you please let me know when will you provide me my pf no? emp code - 1416434 company - geometry global regards, shilpa bidu
+- hi, please send salary slip for oct 18. regards, pratik amrit 1253121 7739940921
+- hi, please share. pay slip-- thanks/ regards hardeep singh +91-9915018617
+- hi, pls provide payslip for this associate warm regards, mohan raut phone : 020 - 6610 7018 *: mohanraut@bflaf.com p please consider the environment before printing this email. from: pushkar vinayakrao
+- hi, plz share my payslip... i reacvd salary.... tday.... want to know pf details.. plz email asap... to kushi.kushal1101@gmail.com
+- hi, sep 2018 month slip is getting downloaded in txt format. due to which the file is not open. please find the attached screenshot for your reference. please send sep 2018 salary slip. thanks &amp;
+- hi, since this is not working i sent you guys a email to share the salery slep. download format to pdf is not working and saving as word file.. regards, roshan
+- hi, when ever i try to download my salary slips its either downloading .ashx and not pdf and when i try to do the same form mobile app the downloaded salary slips are for my old employee id. i need this very urgently can any one look into this asap. regards, roshan
+- hi,i am rajesh i resigned my job on last aug 20 so i need last three month payslip i requesting you please send me as soon as
+- hii i need my last 3 months salary slip on urgent basis as portal access blocked. employee code : 716030. b//r monuranjan gogoi 8876399412
+- i am dattatray darekar emp id. 1327209 worked teamlese company september 2018 salary sleep teamlese app not receved. plz send. apponment letter receved.
+- i can't take download pay slip
+- i can't view and download my october pay slip.. the error message shown, file not found. please need help.
+- i need oct salary sleep plz send
+- i want pay slip october months right now plz
+- i was not get pay slips 834308 please send me payslip
+- iam md. tajoddin employee id 1399126 please send my payslip as soon as possible
+- kindly check 6 daly lop showing in pay slip but all attandance present in attandance software
+- kindly send my last month payslip sir
+- my amploy coad is 1224716 my name mukesh zala
+- my emp id is 1409183 give me a october month 2018 sallery sleep
+- my employe id 706905. i want my salary sleep of october2018 pls send it.
+- my employee i'd 1097447 please send me oct 2018 salary slip
+- my name is adil qureshi 1434134 working with stock holding corporation. i need my salary slip, for which i need a password for teamlease app.
+- my salary slip bhejo october month
+- name mangalick paul id number : 1419952 please send me october pay slip
+- need october month pay slip emp id- 1308333 name- aneesh employer name -telesonic networks
+- no my 8 days salary not credited please check with the blue star people, l have got less salary no details salary slip this not fair my days payment should come
+- october salary slip not view in portal.the page was corrupted.please send through mail. neethu
+- ok. but i need my october,2018 month payslip urgently so kindly share at the earliest please. sent from yahoo mail on android
+- on fri, sep 7, 2018, 12:44 pm ankit chandola <ankitchandola728@gmail.com> wrote: > dear team , > > kindly send us salary slip month of august 2018 asap > > > employee code .1085628 > > > > thanks & regards > ankit chandola > 8755077778 >
+- pay slip not found in my portal. please check.
+- pay slip want me
+- payslip not download
+- pf number not received salary slips
+- please find my salary slip error not download the dog file on fri, 2 nov 2018 8:52 pm vishal chaudhari <vishalchaudhari2011@gmail.com wrote ... 425 characters truncated ... n> 1474722 > > thanks and regard > vishal chaudhari > empolyees id 1474722 > company name johnson control > > > > >
+- please give me print out salary slip october-2018 my employer code is :- 1439122
+- please help me sir give me my last 3 month salary slip sir please request me. on thu, nov 1, 2018, 1:18 pm ubed ur rehman <ubedurrehman79@g ... 1281 characters truncated ... tached hyperlink to an important disclaimer >> http://www.teamlease.com/disclaimer.htm >> >> ref:_00d2818ocd._5000i1li6md:ref >> >
+- please help us sir team lease app my id is not open sir. please sir last 3 month salary slip give me sir
+- please provide our salary slip in teamlease app i download the salary slip but this is show cannot display pdf
+- please send email id my salry slip hard copy november 2018 emp no. 614465 name . dhanaji atmaram kumbhar. mobile no. 9892882323 email id. dak141088@gmail.com thank you
+- please send ever month pay slip to my registered email id. ramsjoga@gmail.com thank you sir
+- please send my oct 2018 pay slip my emp id 1095216
+- please send my october month pay slip
+- please send my pay slip of month october and september 2018 and please send the team lease login id. please update the my new mail id. best regards, sanjay dhanaji jathar emp no- 669484
+- plese give the payment slip all access operators and ibms operators nse bkc site month&#39;s of march 2016 with regards, siemens operator nilesh kherade 7710808097 ext â€“ 20033 disclaimer note on
+- pls send me paysilp from august to october i'm unable to open my app its showing something error pls look into this matter regards, arit das
+- pls send my october pay slip to my mail id...... because it's not downloaded in teamlease app... regards e id 584508
+- plz provide my pay sleep last 3 month
+- plz send me august nd october month pay slip to my mail id gopal.bundale@gmail my id 759995 name b.gopal.
+- plz send my oct18 and nov18 salrry slip gauri shankar prasad on mon, nov 5, 2018, 1:21 pm gaurishankar prasad gaurishankar1780@gmail.com wro ... 871 characters truncated ... my documents-download forms-previous year pf statement by logging into the portal. with regards, sudeshna mishra associate relations
+- remains 1 on fri, nov 2, 2018, 22:38 laxmi chaudhari <chaudharilaxmi26@gmail.com> wrote: > please give me print out salary slip october-2018 > > my employer code is :- 1439122 >
+- respacted sir ; sir good morning, sir please i request you that this month salary slip provide me . my id : 1472787 my name : kunal lalchand ramchandani.
+- respacted sir ; sir i log in our application but my salary slip can&#39;t showing .&amp; plz find my atteched photo . on sat, 3 nov 2018, 11:54 , &lt;alerts@teamlease.com&gt; wrote: hi please find your
+- respect sir plz provide me the salary slip of month of october employee i'd :-872151 mrunal dhote
+- respected sir /madam i m mansoor ali retail executive in whirlpool brand .i request to you plz send me teamlease software app i'd and password.and october pay slip plz it's a request give me i'd and password teamlease app urgently. thanks you your faithfully
+- respected sir please send me the salary slip of month february , march 2018 salary slip . please send it . regards abhinav patel.
+- respected sir, as per my document date of birth is right. but at teamlease office record / document as well my salary slip 25rd-may-1987 so please correction my dob in teamlease office record. my 10th
+- respected sir, my name is neetu dixit. i am working from l.g electronics india pvt. ltd. my employee id is 772153. ... 22 characters truncated ... want my september and october salary slip. neetu dixit 8076405373
+- respected sir/maam\xa0my self shahnawaz ahmed, this is to inform you that i am working for paytmfrom 04 august 2018. and my employee id is 3043024.so i would like to request you to get me monthly salary slip of last month.\xa0thanking you\xa0regardsshahnawaz ahmed
+- respected sir/madam i m mansoor ali retail executive in whirlpool brand.i want teamlease app i'd and password and october payslip it's request to you thanks you your faithfully
+- respected sir/madam myself kaushik ravindra patil. my id is 986464 i want my salary slip of the month of october 2018. please provide me with the same. thank you
+- respected sir/madam, i have downloaded my salary slip for the month of october 2018, but not able to open the file as it is showing the following error. kindly please send me my salary slip asap.
+- respected sir/mam, i requested to you please send me full & final settlement pay slip month of october,teamlease apps was not working,so kindly send me a payslip only month of october as soon as possible regards... emp-1324864 skejaj mb-9339330459
+- respected sir/mam, i requested to you please send me full & final settlement pay slip month of october,teamlease apps was not working,so kindly send me a payslip only month of october as soon as possible with regards... skejaj emp-1324864 mb-9339330459
+- respected sir/mam, i requested to you please send me full &amp; final settlement pay slip month of october,teamlease apps was not working,so kindly send me a payslip only month of october as soon as
+- s.govindaraj [lg] 08056775061, puducherry. sir. respctat sir i need last three month payslip kaindly arrenged sir and send my passward
+- sent for my sallery sleep
+- sent from my samsung galaxy smartphone.-------- original message --------from: kirpalsinghsonu <kirpalsinghsonu@gmail.com> date: 01/11/2018 ... 427 characters truncated ... ary clip dear sir,plz give me my salary slip. thank&regardsname- kirpal singhtrainee code- tr00029627 sent from my samsung galaxy smartphone.
+- sir , i ajit bhadoria the employe of your agency , working in paytm sir i request you to please provide me my offer later and salary sleep... ... because i already process > for loan and bank need my salary slip from past 3 months. > > > thanks and regards > ajit bhadoria >
+- sir i want relieving letter and pay slips for this employee id1371312
+- sir ji pay slip ma pan no aur uan no nahi hai why
+- sir pay slip not open . file size 14b
+- sir please my august month salary slip thanks teamlease
+- sir, i am associate in teamleas my self vishal singh employ code 1388457 my pf no. not show in my profile salary slip ...so slove this issue .....and get my pf details....thanks sir....silent emami ltd
+- sir, i want to slip salaries. my employer number 1402860 sir plizz add this email id to my employer id lekhraj gupta 9993995532 e.id 1402860
+- sir, my salary slip doesn't sow on teamlease.sir i have a request for you that show my salary slip all month's . thanks name. sonukumar emp. id. 1429365
+- sir/madam i need payslip for the month of august for applying personal loan, please do need full help as i need it urgently by today 06 nov 2018. name : harish babu emp id : 1434128 thank you
+- still not received payslip of october'2018 month best regards, current location:- bhubneswar, odisha india =amar pratap mobindia: +91-9507997667 mobindia: +91-943042269
+- thank you for giving an information about teamlease app portal but your app portal is not working your server is down so please send this month payslip by mail
+- thanks a lot. and help to get my salary slip of october month thanks & regards suraj gupta mob# 8108977164
+- this is pavan kumar from guntur tl emami company sir still i&#39;m not received pay slip from team lease sir need priority bases i need my pay slip sir. in our app give file not opened . please send
+- this is pavan kumar from guntur tl emami company sir still i'm not received pay slip from team lease sir need priority bases i need my pay slip sir. please help me sir -- thanks & regards, ch . pavan kumar 9912266901 guntur tl emami
+- unable to get the salary slip from 01.04.2017 till date. please help.
+- we are uable to open portal. so please share salary slip.
+- whatever you&#39;re send the pay slip of august month in that showing zero earnings,please check it and send updated salary slip ,its very needful ,that pay slip also attached . on 05-nov-2018 11:25 am
+- when i am opening oct month pay slip facing the below problem, pls send me pay slip name : kalegowda id no :697642 ---------- forwarded message --------- from: kalegowda m &lt;kalegowda.mn@gmail.com
+- why october stipend slip is not realised please follow the attached hyperlink to an important disclaimer http://www.teamlease.com/disclaimer.htm
+- why stipend in not realised please follow the attached hyperlink to an important disclaimer http://www.teamlease.com/disclaimer.htm
+
+## intent:none
+- i have received salary
+- I have received my salary slip
+- I have received my it form
+- I received my form
+- salary is released
+- thank you for releasing my salary
+- ---------- forwarded message ---------- from: &quot;ritik sharma&quot; &lt;ritik4645@gmail.com&gt; date: 17-oct-2018 8:47 am subject: re: tr10173120 - sep&#39;18 stipend [ ref:_00d2818ocd._5000i1kczpf:
+- ---------- forwarded message --------- from: azfar ali khan &lt;aliazfar97@gmail.com&gt; date: tue 11 sep, 2018, 8:56 am subject: re: deficiency letter generated for patient name : azfar ali khan
+- *dear hr team, * verifacts is an iso 27001:2013 certified and nsr nasscom empanelled background verification company. we verify the part ... 2622 characters truncated ... y attachments for the presence of viruses. the company accepts no liability for any damage caused by any virus transmitted by this email.
+- 1name-s.ramesh dob-25.5.1986, aadharcard-773839100170 2relationship - wife name -r.durga lakshmi, dob-17.5.1993, aadharcard-399352510132 3 relationship -father name -n. subramani, dob-15.4.1950
+- a/c no. - 05831460006281 bank - hdfc bank statement ashish on thu 11 oct, 2018, 5:12 pm associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us, if you have not
+- app is not working......
+- as per your request i&#39;m sending my october payslip screen shot.. could you find that screenshot, in that screenshot oaother allowances coloumn not available. so pls check once... sent from yahoo
+- book k
+- dear angirath, your concerns is pending with pf department not with teamlease , kindly await response form them. Â· register grievance Â· send reminder Â· view status Â· change password Â· faq action status
+- dear associate i have send pension form dtdc service plz check consignment no- z75451157 thanks dileep kumar shukla 954886 get outlook for android from: associate inbound &lt;info@teamlease.com&gt;
+- dear associate realations, iam sending my cancelled cheque and id card aadhar card along with pan card. note: as iam not having printed cheque book so sending cancelled cheque by writing name
+- dear associate, as discussed with regards to correction in your relieving letter, we need a confirmation mail from your spoc to clients@teamlease.com warm regards, vignesh p associate relations for all
+- dear employer thanks salary has been received in my account thanks a lot
+- dear hr, i am kushal shinde from cfirst background checks. this mail is with reference to the employment verification of tapasaranjan samanta, who claims to be an ex-employee of your esteemed
+- dear jyothishree, delete and remove the below link and reply more than one month happened writing complain against this and nothing done from teamlease till now. what teamlease and all its employees do
+- dear mam, please told me what is status of my request? sent from my samsung galaxy smartphone. -------- original message -------- from: associate inbound &lt;info@teamlease.com&gt; date: 06/10/2018 13:
+- dear manjoor, we have informed team lease to release your salary. it will be done in a day or two. best regards, dormakaba india private limited s sathyanarayanan human resources region south asia t: +
+- dear meenakshi, please don't courier the cheque.. i can collect it from innovation orelse you can hand it over to priya mohite. i will coll ... 242 characters truncated ... a ltd.* *shree sawan knowledge park* *4th floor,d-507,thane belapur road* *turbhe ,navi mumbai-400705,india.* *ll:-02267243819*
+- dear mom, i have sent my details to your address for pf withdrawal. is there anything further required. baisil on tue, 6 mar 2018, 12:22 am b ... 415 characters truncated ... low mentioned pf number for your reference. bg/bng/0035224/000/701416 please find attached herewith consolidated payslips for your reference.
+- dear mr.tanweer please process my pf for withdrawing regards tridev sharma from: associate inbound [mailto:info@teamlease.com] sent: wednesday, october 17, 2018 9:38 am to: tridev.sharma@su-kam.com
+- dear pampapathi kv associate relations, wanted to update you here again invoice no tl29t18/28109 amount release inr 49422 is the total amount of october &amp; november 2017 inr17266+ inr32156= inr49,
+- dear ps charanji, please prepare offer letter based on attach detail and joining document attach here. regards, virendrasinh chauhan from: virendrasinh chauhan sent: 16 october 2018 18:14 to: ps charan
+- dear satya, as discussed over the call, kindly check below mentioned psf incentive sheet pls check from your end and revert for same *pfa salary slip and incentive sheet for ready reference employee
+- dear sender, thank you for your mail, i am on leave and will be back in office on 18th october 2018. for any urgent support please reach to my manager hitesh gandhi hitesh.gandhi@orange.com thanks.
+- dear sir / madam . i am girisha a from micromatic machine machine tool . please send my second salary renewal letter. regard girisha a
+- dear sir / madam please note that our client code is lm9ch thanks and regards praveen kumar asst. manager hr l&amp;t kobelco machinery private ltd 94426 37119 from: associate inbound [mailto:info@
+- dear sir / mam, i am still awaiting for the revert as per trailing mail. kindly expedite the same latest by tomorrow without fail. regards, dhaval narshana sent from yahoo mail on android on tue, oct
+- dear sir greetings of the day plz inform me about my complaint no.176213389 and resolve it plzz
+- dear sir i am nathuram kumawat working in team lease ltd. please find the attached check , need to update my cancel check in your system because my salaries can be processed emp.code-1480769 nathuram
+- dear sir i don&#39;t remember his name almost it&#39;s 2week back i have submitted ---------- forwarded message --------- from: infoteam &lt;info@teamlease.com&gt; date: tue, oct 16, 2018, 6:22 pm
+- dear sir iam errola srinivas em id 1394617 working from international speciality products hyderabad refer to the this mail of person plz provide the any job in hyderabad location ---------- forwarded
+- dear sir in government portal of of getting the error please update your father or husband name in member details through your employer /unified portal thanks sunil maka
+- dear sir my july salary is pending so what is my july salary released date please confirm me
+- dear sir my pf is transferred but my pension is not transfer in your company please give me needful advise on 16 oct 2018 10:44 am, &quot;info team&quot; &lt;info@teamlease.com&gt; wrote: dear
+- dear sir my pf uan number not genret plz help on tue, 9 oct 2018, 11:26 infoteam, &lt;info@teamlease.com&gt; wrote: dear associate, in continuation to the trail mail we have modified your basic details
+- dear sir or madam my self sharanabasappa 1469998 bharat pay employee i want today my incentive i waiting for last 10 days
+- dear sir please inform the pf from arrived the office name atul kumar emp code 1188924 mob no 8948415549 dob 5.7.2018 with regards atul kumar
+- dear sir please sand my new increment letter regards mohd shahzad employee 228837
+- dear sir please update mention mail id and mobile number. lakhan.meghwal@bizsupporta.com mobile no. 7023207771 employee name lakhan meghwal employee code 1467759 organization name bajaj finserv rcd
+- dear sir plz find the recipt of pf withdraw hard copy send to you by speed post. thanks &amp;regards vikas vikram singh
+- dear sir request your support please below mention my all details are pending for name changes. we are follow up team lease, but no any response from long time. thanks &amp; regard, angirath wankhade
+- dear sir will check with as per your information but status not showing.. please check one more time at your end on mon, oct 15, 2018, 12:35 associate inbound &lt;info@teamlease.com&gt; wrote: dear
+- dear sir, as you requested please find below details. courier company name: dtdc consignment number: a42150937 dispatch date: 09/10/2018 destination address of team lease: madiwala, bangalore
+- dear sir, august month claims vl be released on 7/09/18.fos september month claims vl be released on 7/10/18.but till now am not getting.please release the claims as soon as possible. thanks and
+- dear sir, claim amount is 1790 /- regard nikhil on tue, 16 oct 2018, 12:57 pm khazi mohammad, &lt;khazi.mohammad@autoliv.com&gt; wrote: dear nikhil, kindly share the amount details. thanks &amp;
+- dear sir, greetings!! this is prachi prakash ex-employee of hitachi payments services, please to informed you that i took re leave in december 2017 but can&#39;t took my releaving documents and the
+- dear sir, i am not receiving my incentive and here i attached my september month salary slip. please check this. on sat, nov 3, 2018, 10:46 am info &lt;info@teamlease.com&gt; wrote: dear associate,
+- dear sir, i didn&#39;t find any attachment.please confirm. regards yogesh on wed 17 oct, 2018, 9:18 am associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, please find the attachment
+- dear sir, i have already send you the pension form which you have email to me.i had send the new pension from with my signature on 17 september 2018 by trackon courier service. the doc no. is
+- dear sir, my employee code is 1480983. best regards, jigar panchal on 16-oct-2018, at 6:18 pm, associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us request
+- dear sir, please confirm the joining. regards ashish tiwari 1482670 on tue, oct 16, 2018, 17:50 infoteam &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us. please be
+- dear sir, please find attached signed soft copy of my revision letter. kindly request to you please do needful thanks $ regards jaskaran singh emp code- 1247128 9915129729 on tue, oct 16, 2018 at 1:21
+- dear sir, please help me to fill the form no 10c and pf withdrawl form.for withdrawl my pf. name - manvendra singh emp code- 951511 contect no. 7088677071 thanks and regards manvendra singh 7088677071
+- dear sir, please provide me the new user registration and password. my name is - ashish bhola employee code no. - 1420506. my mobile no - 8851781217
+- dear sir, please send me pf withdrawal form and address for given employee id 574816 thanks &amp; regards laxman sanadi 8970268686
+- dear sir, please update my bank datial . name- prabhat kumar imply code - 1463725 date of joining-19/09/18
+- dear sir, this is to inform you that i rakesh kumar patra emp code 1296641 wants to resine from my post as dma collection from 17/10/2018. requesting to allow my resignation and release me from my post
+- dear sir/ madam as per response received we have sent the employee code.kindly do the needful. greetings. my name is aditi and i am with neeyamo inc. we are a third party background screening
+- dear sir/ madam can u pls update on this on thu, 11 oct 2018, 7:40 am associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us. this is to inform you that we
+- dear sir/ma&#39;am, i am writing this on behalf of authbridge, one of india&#39;s leading company in employee background screening services. you may visit www.authbridge.com to know more about us. this
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of abhishek pal. i would appreciate if you could spare some time from your busy schedule to verify
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of akshay gandotra. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of bhupendra singh rathore. i would appreciate if you could spare some time from your busy schedule
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of chetan suryakant mohite. i would appreciate if you could spare some time from your busy schedule
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of deepa m. i would appreciate if you could spare some time from your busy schedule to verify the
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of dheerendra pratap singh. i would appreciate if you could spare some time from your busy schedule
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of gautam kumar. i would appreciate if you could spare some time from your busy schedule to verify
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of harshal vilas mahajan. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of kurra mohanreddy. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of manoj kumar dash. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of mubarak ahmed m. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of navneet mulji khakharodia. i would appreciate if you could spare some time from your busy
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of pravin azhakesan. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of preetham c n. i would appreciate if you could spare some time from your busy schedule to verify
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of priyesh kirar. i would appreciate if you could spare some time from your busy schedule to verify
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of rajil hitendrakumar parmar. i would appreciate if you could spare some time from your busy
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of rajvinder singh. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of rakesh . i would appreciate if you could spare some time from your busy schedule to verify the
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of saisree vasireddy. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of savaliya satish ramesh. i would appreciate if you could spare some time from your busy schedule
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of sonali .. i would appreciate if you could spare some time from your busy schedule to verify the
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of sumit kumar singh. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of tanveer husain ansari. i would appreciate if you could spare some time from your busy schedule to
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of uday sen. i would appreciate if you could spare some time from your busy schedule to verify the
+- dear sir/ma&#39;am, this is in reference to the request mail sent in lieu of employment verification of vijaya suresh mundekar. i would appreciate if you could spare some time from your busy schedule
+- dear sir/madam i am nandakumar joined as operation executive on 10/10/2018 i marked my attendance using new userid and password through attendance regularization but manager not mapped shown in pending
+- dear sir/madam i had resigned from your organisation on 28-august-2018, and i already submit request for pf withdrawl and send the hard copies of the same to your office. i here by request you to
+- dear sir/madam please find the attached excel sheet for the update my esic record on mon, oct 15, 2018 at 10:07 am mail delivery subsystem &lt;mailer-daemon@googlemail.com&gt; wrote: address not found
+- dear sir/madam this is arabind prasad,paytm employee code-3028364,teamlease employee code-1433347.want to inform you i want to login my teamlease... i recievved my teamlease app password from teamlease. there for request you to sir please send me my teamlease app password and solve this problem.
+- dear sir/madam, as per your mail, pre-hospitalization period of 30 days and post hospitalization period of 60 days from date of discharge is covered under insurance. also, it is mentioned that i need
+- dear sir/madam, as this for the employment verification of mr. sumit prasad it is an urgent request and, your prompt help will speed up the employment of the candidate. we would appreciate any helpful
+- dear sir/madam, this is to advice you that a transfer of rs. 14040.00 has been initiated from a/c no 00762300000828 of client teamlease services limited to your account. - 810151518356 this is a system
+- dear sir/mam, employee id:1395160 i am not able to download my uan passbook regards dinesh8825836848
+- dear sir/mam, greetings of the day!!! i am writing to inquire if you have any vacancies in your company i enclose my cv for your reference. i am a conscientious person who works hard and pays attention
+- dear support team, my self nitin bhosale, ecn: 648875 i have applied for personal loan in hdfc bank, so the bank will mail you to verify my salary slip & job & etc, so please revert them as soon as possible regards nitin bhosale ecn :648875
+- dear team below attached for screen shot in dtdc courier details..forget to attached bank scan copy.. below i attached both copies. thanks regards, kailash. s 9095407304 8072260584 on tue, 16 oct 2018,
+- dear team greetings for the day please update me pf claim status, i am receiving sum of amount rs.29326, total amount not received, please update me reason and how to withdrawal remaining pf amount.
+- dear team hi when trying to apply pf in online it was showing like this kindly attached screenshot please check thank you regards n anil kumar uan 101137203456
+- dear team how to claim online. regards vinod on wed, 17 oct 2018, 11:10 associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, greetings from teamlease. you can view your pf statement
+- dear team i also send my nominee details. why u writing in usha rani my mother name is not usha rani my mother name is smt.asha rani.why ur team fill usha rani. pls change my nominee details. nd resend
+- dear team i vishal ramdas wadekar ecode 1289520, raised pf withdrawal claim on teamlease portal on 16th october 2018, the withdrawal request along with the form 10c and 2 cancelled cheques sent by
+- dear team lease, i have been pursuing this pf activity for the past 4 months, which is a huge stretch by any standards. can you please send me the courier name and consignment # for the pf transfer
+- dear team lease. i have resigned from teamlease on 14-08-2018. now i have to withdraw my pf . i have uploaded all my documents on your portal but there is no submit button showing on your portal while
+- dear team members am y shravan kumar , emp no 1478624, i am unable to open my team lease app. i have tried to ... 15 characters truncated ... nect login portal also but, i received that your user id & password incorrect. please do the needful. regards,y shravan kumar99856792909030066554.
+- dear team please find the attached file for esic card details. thanks and regards arshya sama emp : 1259185 -------- original message -------- from: info team &lt;info@teamlease.com&gt; date: 17/10/
+- dear team please find the attachment aadhar card from: associate inbound &lt;info@teamlease.com&gt; sent: tue, 16 oct 2018 15:24:24 gmt+0530 to: &quot;yashmaheshwari.maheshwari@bizsupportad.com&quot;
+- dear team please request, update my new email id please i&#39;m not able to login teamlease app please help me my employer id 1427333 pass word 4e35b i am try to login teamlease app it&#39;s showing
+- dear team please send the pf statement and pension statement details above mentioned employees code :625094 uan no:100116768882 pf a/c no:bg/bng/0035224/000/0510611 pension a/c no: bg/bng/0035224/000/
+- dear team thanks ur writing i enter uan number and tuch the forgot password but answer is ur uan is not active, please help me this problem em id 1171207 uan number 101068980795 regards t. sathishkumar
+- dear team, am already uploaded documents in team lease e onboarding app by using new user mobile number only but it is showing still account is not active. regards m.lokesh reddy e.id: 1481346 reddy.
+- dear team, as per you are information kindly share salary revise letter . thanks and regards balraj m gundappa bajaj housing finance limited a 100% subsidiary of bajaj finance limited 3 rd floor, bajaj
+- dear team, below user unable to login in teamlease portal , please help. teamlease employee code employee name designation main location 1479211 nikunj vasantkumar panchal operations officer mumbai
+- dear team, emp id- 1211720 please note that i had a conversation with your support executive kabir pasha around 18:00 hrs regrading support ... 925 characters truncated ... lease: teamlease services ltd 6th floor bmtc commercial complex, 80ft road koramangala bangalore 560 095. regards, vasant tari 9769066143
+- dear team, i all ready done mention activity and send you the same screen shot of pf portal. request you kindly rechecked my pension application form along with attached document...... i already share
+- dear team, i have despatched my pf withdrawal form hard copy through dtdc courier vide awb m70346243 on 15th oct.2018. please confirm. thanks &amp; regards shyam tambe employee.609769 mo.9819010878 on
+- dear team, i request you that please fill the reliving date in my uan portal. my uan no. is 101126986086. i was working with your company 16th may 2018 to 31st july 2018. please do needful help regards
+- dear team, i waiting for your reply regarding the utr number. r.payriaswamy 9940665513 please consider the environment before printing this e-mail delhi india on fri, oct 12, 2018 at 6:34 pm associate
+- dear team, kindly find the attached 10th marks card as per your request. thanks &amp; regards aditya adiga on mon, oct 15, 2018 at 3:28 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear
+- dear team, kindly find the below details. regards, priya 1210833 on wed 17 oct, 2018, 10:59 am srivani gr, &lt;srivani.gr@strides.com&gt; wrote: teamlease bangalore srivani gr hrd349214913 pro from:
+- dear team, kindly provide an update. thanks and regards, jenifer arlanandhan. on tue, 9 oct 2018, 1:20 pm jenifer john, &lt;jeniferjdunch@gmail.com&gt; wrote: dear team, please find the attachment of
+- dear team, kindly update. regards, praveen sharma, soc-surat, +9188219222074 on mon, 15 oct 2018 at 18:52, associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to
+- dear team, my name is sudhavnair. i cant able to open team lease application with the password given by you. whenever i try to open my account it shows invalid user id &amp; password . the screen shot
+- dear team, please accept my resignation my boss has not made team lease id so he doesn&#39;t accept my resignation so please you accept my resignation and send me exit kit. team lease id : 1307784 dme
+- dear team, please check as attendance wrongly reflecting as absent for few days for following employees below all employees presented all day in oct 18 after joining but they are unable to login there
+- dear team, please confirm thanks &amp; regards harish chandra internal from: ho/e/teamlease_chandra harish, lpd sent: tuesday, october 16, 2018 6:21 pm to: &#39;associate inbound&#39; subject: re: pf
+- dear team, please find attached annexure -c . kindly do needful. regards, swati hogade 8805007916 from: associate inbound &lt;info@teamlease.com&gt; sent: wed, 17 oct 2018 09:34:02 gmt+0530 to: &quot;
+- dear team, please find attached screen shot epf passbook not available please do needful asap. employee code: 996728 thanks &amp; regards, vinod bodkhe, mobile: +91 9881713855 mail id: vinodbodkhe456@
+- dear team, please help. i am still unable to login teamlease portal. employee id â€“ 1474751 employee name â€“ pravin popat mane pravin mane on tue, oct 16, 2018 at 11:41 am sandesh padvekar &lt;sandesh.
+- dear team, please revert on priority... on mon, 15 oct 2018, 19:28 info, &lt;info@teamlease.com&gt; wrote: dear associate, kindly note that we have taken up your issue on priority and will revert with
+- dear team, plz confirm when i expect my fd amount.. required details i have already share with you regards, sakshi haryan
+- dear team, thanks for your response. request you to please authenticate the attached experience letter as there is major discrepancy in date of relieving so please help with the same as candidate&#39;s
+- dear team, we have already communicated on this request you to processed asap. thank you kind regards karan chand | bangalore cpo - hr contact no- 080 4609 2169 | 9513656810 itc limited- central
+- dear team, we represent the employment screening practice of kpmg. we are currently conducting background verification on behalf of a firm, where stated former employee of teamlease services limited is
+- dear teamleas please any update on fri, oct 12, 2018, 12:14 pm infoteam &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us. this is to inform that your pension form is under
+- dear teamlease, i m umesh kumar ep code 1281075 please forward my pf stetment right now and worng id password please check regards, umesh kumar
+- dear teamlease, my name is ashish kumar tiwari, my date of joining is 16 of oct 2k18,on 31oct my salary is realesed by acuite team, ish kumar tiwari emp id-1482670 location -delhi case no-176311842 client id-25gmb regards ashish kumar tiwari 9891660741
+- dear teamlease, type : dispatch details nature : letters dispatch category : dispatch concern : when we receive our contract papers. kindly confirm date for the same... requested date : 10/17/2018 10:
+- dear teamlease, type : esi smart card nature : cards category : esic concern : dear sir,madam please provide the esic card . requested date : 10/17/2018 10:03:44 login id : samgursewak@gmail.com email
+- dear teamlease, type : leave break up nature : inputs category : leaves concern : how many leave&#39;s are available as paid one for each quarter requested date : 02-11-2018 16:53:05 login id : syed.
+- dear teamlease, type : loan request letter nature : non standard letters category : letters concern : dear sir plz provide loan i am working past from 15 months requested date : 10/17/2018 07:20:36
+- dear teamlease, type : loan request letter nature : non standard letters category : letters concern : dear sir plz provide loan i am working past from 15 months requested date : 10/17/2018 07:20:47
+- dear teamlease, type : others nature : personal category : modifications concern : hello there, i am nvgtulasi working in paytm vizag branch. my gender is wrongly mentioned to male in teamlease portal.
+- dear teamlease, type : others nature : personal category : modifications contact no : 9010099278 requested date : 10/17/2018 10:31:13 login id : nvgtulasi@gmail.com email id : nvgtulasi@gmail.com
+- dear teamlease, type : pf statements nature : pf procedures &amp; assistance category : provident fund concern : i want pf balance till date requested date : 10/17/2018 08:21:09 login id : wablevinod5@
+- dear teamlease, type : pf statements nature : pf procedures &amp; assistance category : provident fund contact no : 8368375469 requested date : 10/17/2018 09:32:24 login id : jha24816@gmail.com email
+- dear teamlease, type : resignation mail nature : procedures category : resignation concern : dear san, i am working here for two and a half month , since 7 august 2018 . my official id is 1443416 .
+- dear teamlease, type : transfer in status nature : status category : provident fund concern : of not added in my account requested date : 10/17/2018 10:08:10 login id : debjyotihazra0@gmail.com email
+- dear teamlease, type : transfer in status nature : status category : provident fund concern : pf update plz and say about contrubution of empyalor requested date : 10/17/2018 09:31:18 login id :
+- dear,team screen shot of approved by rm of petrol conveyance please do as soon as possible regards, pavan somvansi sales executive teamlease songadh mob. +919879111296 disclaimer: this message,
+- delivery incomplete there was a temporary problem delivering your message to info@i-2lke0lz2eh5ci4vhnceqvng3lyd385bxl3xg2zggukdgh64ba4.28-18ocdeay.ap2.case.salesforce.com. gmail will retry for 47 more
+- e-mail id- shaikhakramak84@gmail.com please follow the attached hyperlink to an important disclaimer http://www.teamlease.com/disclaimer.htm
+- email notification to admins: hi, here is a new query for teamlease.com user type: associate employees contact person name: prasanna shetty email: praacool@gmail.com mobile: 9880474995 company: wipro
+- email notification to admins: hi, here is a new query for teamlease.com user type: associate employees contact person name: sultan haider email: smrhaider76@gmail.com mobile: 9696459959 company: bajaj
+- emp. id. 1055063 company name- whirlpool india ltd. mobile number- 9999827384
+- employ code 1456634 name beekesh kumar
+- employee id - 1294664 name - akshay gangadhar nikose dob - 22/02/1996 joining date - 27/11/2017 hello sir/madam i work 7 months with hdb financial services ltd company through teamlease company. i want
+- emplyee no. 1457266 name - ashish malhotra s/o mr. krishan malhotra date of joining - 31/08/2018 bank account number - 05831460006281 bank - hdfc ashish
+- from: aakash dahiya &lt;adahiya510@gmail.com&gt; date: wed, 17 oct 2018 at 11:05 am subject: id card to: joiningkits@teamlease.com &lt;joiningkits@teamlease.com
+- from: ajinkya upadhye &lt;ajinkya.upadhye91@gmail.com&gt; date: wed, 17 oct 2018 at 11:07 am subject: e-on boarding confirmation to: &lt;devanand.chanore@emp.
+- from: anette francis &lt;anettefrancis100@gmail.com&gt; date: wed, oct 17, 2018, 11:02 am subject: password to: &lt;info@teamlease.com&gt; sir, i&#39;m thresia
+- from: vikasvikram singh &lt;vikramsinghagnivanshi@gmail.com&gt; date: tue 16 oct, 2018, 6:02 pm subject: re: salery related query [ ref:_00d2818ocd._5000i1kcjv3:
+- greetings for the day! dear sir, i have claimed withdraw of my pf at 4th oct,2018 on line mode and send the hard copy and it&#39;s belongies to bangalore office. so therefore i want to know that when
+- happy dasara regards prafull bohra ceb-udp 9982873300 larsen &amp; toubro limited www.larsentoubro.com this email may contain confidential or privileged information for the intended recipient s. if
+- hello pradnya / bhaskar, this email is to notify you that i am resigning from team lease as a service desk specialist and today 17 th oct 2018 is my last day of employment. i request you to help me to
+- hello respect sir as per your instructions i am giving you 15 days notice period for leaving job from indiabulls consumer finance ltd.i am giving notice period to you from 17th of october 2018 and my
+- hello sir/madam, i got the email from teamlease with login credentials to upload necessary documents and there was mentioned i need to install teamlease app and login with the given credentials but
+- hello sir/madam, we need the employee certificate for emp. no. 1305983 we was purchased new bike rto will require employee certificate. please provide on urgent basis so that rto will issue the bike no
+- hello team kindly provide us an update on my full and final settlement, by when i will be getting the same and what will be the mode of payment. details mentioned below:- employee number: 1085415 name:
+- hello team, i am aslam ali 9971403304 , i joined team lease as contractor on 15th oct 2018 i am not able to login team lease app. can you please share the login credentials &amp; my employee id
+- hello team, i would like to know the status of my resignation and contract closure with teamlease. can you please give me some details around the process, as in: 1. when do i get the relieving and
+- hello! we are a professional manufacturer of mobile power, we hope to have the opportunity to cooperate with you, thank you! if you have any request, please feel free to contact us.we&#39;ll try our
+- hello, a mail communication regarding my joining details has been done by mr. hardik patilbosch ltd. nashik. please provide me the login credentials. best regards, manoj datir on oct 16, 2018 1:25 pm
+- hello, i was a employee of ricoh india delhi. emp no. 978405. i want to take my pf. kindly help.
+- hello, sending hereby my approved manual timesheet as not able to populate my timesheet in clarity. kindly consider and suggest changes if any. capgemini kin vendor kin name of the contractor name of
+- hi , pls send my id-card on below address . picture already sent by teamlease app . add- ab inbev , 4b building , dlf corporate park , near guru dronacharya metro station gurgaon , 122002 name - ankit
+- hi all, please find with the attachment file for my timesheets 16 th sep&#39;18 to 15 th oct&#39;18 capgemini kin vendor kin name of the contractor name of the vendor no of days leave taken c14110_in
+- hi alok/pratik, please help us here regards, sandesh from: pravin mane [mailto:pravin.mane9111984@gmail.com] sent: 17 october 2018 09:22 to: alokkumar singh &lt;alokkumar.singh@bajajfinserv.in&gt;;
+- hi can you confirm me how much time take release fund time advocate pawan khatana mob:9711550228 email:pawankhatanapaw@rediffmail.com sent from rediffmailng on android from: infoteam &lt;info@teamlease
+- hi i cannot get the details on the site.. it&#39;s giving an error. can you please share the pf amount if possible from your side.. thanks &amp; regards on tuesday, october 16, 2018, associate inbound
+- hi i have sent the document again so plz check &amp; updated me on this on wed, sep 12, 2018 at 12:17 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, we regret for the
+- hi kalpana, please send these email to staffing team. also, we can&#39;t consider any manual attendance. as, you need to mark it on the portal. please send a screen shot if unable to do so. ishmeet
+- hi kalpana, sunil and satish would be the right people to mark on this subject please. + sunil, satish regards amit yadav from: munagala kalpana sent: tuesday, october 16, 2018 4:17 pm to: amit yadav
+- hi rabiya, have you received my courier. pf form regards ajay kumar e.code:827468 on sat, oct 13, 2018 at 12:22 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, greetings from
+- hi rahul, id card is getting dispatched to provided address today. request you to acknowledge on receipt of same. thanks and regards, flipkart supervisor mohammed baqar 9341782319 on wed, oct 17, 2018
+- hi refer below courier details courier company name: india post www.indiapost.gov.in consignment number : rm046741216in type-registered post dispatch date: 16/10/2018 destination address of team
+- hi sandeep, we will take it manually for this month as an exception regards alok kumar singh from: sandesh padvekar sent: 17 october 2018 11:06 to: pravin mane &lt;pravin.mane9111984@gmail.com&gt;;
+- hi syed, kindly get in touch with the employee &amp; get it closed. regards, nilesh karki from: associate inbound &lt;info@teamlease.com&gt; sent: wednesday, october 17, 2018 10:33 am to: nilesh karki
+- hi team kindly find the employee code 1430987 on fri, oct 12, 2018 at 12:56 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, greetings from teamlease. request you to provide your
+- hi team pleases confirm once here as i am asking for the pf for my previous pay role manpowe, as after joining the team lease i am not able to withdrawal the pf, as teamlease, i am facing the error
+- hi team, as discussed my document was not delivered to the office but as i got the update it was delivered on 11-10-18, please check the below screen shot and update asap, and get to no about the
+- hi team, can you please call to help me understand better? are you suggesting that pf transfer has already been settled? if yes, please share annexure k. regards, samarth shah. +91-7984015636 twitter |
+- hi team, i am not eligible for pension its ok. but what about my pf amount. kindly let me know when i can get that. and what is status of the same. on wednesday, 17 october 2018, associate inbound &lt;
+- hi team, i do confirm that the bank account number: 67191383553 is mine.
+- hi team, i want to change my current salary account number. i opened new salary account in hdfc bank by the help of bank introduction letter provided by teamlease. kindly share the process for bank
+- hi team, i want to withdraw my pf not to transfer it. you have shared procedure with me to transfer it. kindly let m know the process of withdraw it. on tuesday, 16 october 2018, associate inbound &lt;
+- hi team, kindly inform to you my id card is not received till date. details name - rahul malviya location - motherhub_ind indore emp. id team less - 1420579 emp. id flipkart - 110951 add. - ward
+- hi team, kindly revert on this.
+- hi team, my employee id is 1458485. i want the tan number. thanks, atanu 7827593869
+- hi team, pfb screen shot of the status for , pf transfer-out settlement of previous company. kindly confirm. thanks, bhakti pillai talent acquisition &amp; sourcing capgemini technology services india
+- hi team, please find the below mentioned time sheet for the month of oct&#39;18 {16 sept&#39;18 to 15 oct&#39;18} capgemini kin vendor kin name of the contractor name of the vendor no of days leave
+- hi team, please help in withdrawing pf amount while i was associated as an employee with manipal university jaipur. pfa experience letter &amp; last salary slip employer- manipal university jaipur
+- hi team, please reply on below mail as i need the same immediately. best, deepika angane senior operation executive - risk management solutions direct no:022-66765501 email – anganed@dnb.com dnb.co.in
+- hi team, please update me status. on fri, oct 12, 2018, 5:13 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us.we acknowledge your response. however we
+- hi team, please update on below mail, we are waiting for your response. rgds akhilesh 9779234236 on wed, oct 3, 2018 at 3:09 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, in
+- hi team, reminder 1 please confirm the status?? thanks, inderjeet singh rawat on thu 11 oct, 2018, 11:21 pm inder rawat, &lt;inder.rawat2000@gmail.com&gt; wrote: hi team, can you please confirm the
+- hi team, your revert is awaited. please support on below mentioned issue. thanks & regards, rohin saini 1149250
+- hi teamlease, id::1362971 please give me update on sending me the hard copy of my experience letter and relieving letter. ----- forwarded message ----- from: eden adaikalam &lt;edenadaikalam@yahoo.in
+- hi this is jeena ronald. i have an enquiry about changing the bank details i had already submitted. i want to change it from sbi to hdfc.
+- hi this suraj gupta my employee id is 1371553.i attached my september month salary slip for your reference please provide it thanks &amp; regards suraj gupta
+- hi tl team, i have submitted the pf withdrawal form to mr. satish at your bangalore office. please note the application number is tl6a3ea97648 kindly let me know the status of the same, as i haven&#39;
+- hi unable to login in team leas portal below is my employee id name - nilesh gurav emp code - 1446506 alternate mail id -nileshgurav8484@gamil.com alternate mob no - 8355800704 kindly help me to
+- hi, i would like to say that please proceed my pf withdrawal process fast as soon as possible.cause i need that urgent in a urgency.
+- hi, my dues are pending on teamlease services, pls do the necessary. i was fired on 10/8/18 by your client sbi credit card. tulsi 1421482 ph-9911034185
+- hi, please find attached scan copy of pf withdrawal documents. original is being sent at below address cops - associate interface team, teamlease services ltd 6th floor, bmtc commercial complex, 80 ft
+- hi, please find below my pancard number - bbypd7127h regards, avinash employee code- 1446631
+- hi, thanks for the confirmation. i also want to know whether my wife is also included here. she is in a family way so please let me know the amount for maternity. thanks regards nitesh kumar fmc india
+- hi, this is shahnawaz haidari. emp id :1187186 worked at : mother dairy f&amp;v pvt. ltd. delhi please send the hard copies of releving and exp. latter on the below address. address : nainpur colony
+- hsjbsh
+- i am pradnya shinde my imp id 1274593.... i have teamleasw password ... plz send mi details my new no 9137565312 sent from vivo smartphone
+- i don't know in present time who is my reporting manager so you contact to my company
+- i got my salary
+- i have not received any type of pf ammunt, pls check the data on wed, oct 17, 2018, 10:10 am associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, thanks for writing to us, please be
+- i have received my salary
+- i want to take my pf. how i can take my pf. my teamlease id is 1327045 regards anurag bhatt
+- i will be out of office from 11/2/2018 to 11/9/2018 for diwali vacation.if you need any help please contact sachin jagdale. "this email and any at ... 249 characters truncated ... are notified that disclosing, copying, distributing or taking any action or reliance on the contents of this information is strictly prohibited."
+- i&#39;m share a copy of annexure k. kindly check this. on wed, 17 oct 2018, 8:58 am associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us. the transfer in
+- info@teamlease.com
+- is there any special gift hamper available for dewali celebration
+- kindly check my aadhar card with dob ---------- forwarded message --------- from: manik nikhare &lt;manik1956.14@gmail.com&gt; date: mon, oct 15, 2018, 13:46 subject: re: fwd: update my pf and uan no [
+- kindly do the needfull. on mon 5 nov, 2018, 12:55 pm shubham baghla <shubhambaghla74@gmail.com wrote: > dear team, > > we have ... 170 characters truncated ... en also attached for ready ref. > > e. code :- 1213450 > name :- shubham baghla > > thanks & regards > shubham baghla > >
+- kindly note that i have joined in today in acuite ratings and research pvt ltd from today ie17-10-2018. thanks &amp; regards, tejas jani
+- kindly request change my a/ci attached cheque leaf for standard bank pls update .this my request sir/mam team lease employee id: 1474980 date of joining:27/9/2018 date of birth:22/01/1990 company name:
+- kindly request change my a/ci attached cheque leaf for standard charted bank pls update .this is my request sir/mam team lease employee id: 1474980 date of joining:27/9/2018 date of birth:22/01/1990
+- mukesh kumar sharma, emp.id 843185 , dear sir please send me pf form ---------- forwarded message --------- from: mk sharma &lt;mksharma.agro@gmail.com&gt; date: sat, nov 4, 2017, 10:14 subject: fwd:
+- name : karthik dob :15/03/1996 employee code :1321555 father name :ramasamy need for company code four digit urgently regards , karthik.r
+- name : suraj dutta employ id : 050393
+- name : suraj dutta. employ id : 050393
+- name- balasaheb valmik arote user id- 1267526 please send pf withdrawal sample from
+- number on oct 16, 2018 3:29 pm, &quot;kumar gautam&quot; &lt;gautamrajster@gmail.com&gt; wrote: &gt; &gt; d &gt; &gt; on oct 11, 2018 12:47 pm, &quot;associate inbound&quot; &lt;info@teamlease.com&gt;
+- ok sent from my samsung galaxy smartphone.from: prabhat jauhari &lt;prabhat.jauhari@airtel.com&gt; date: 17/10/2018 10:31 am gmt+05:30 to: vijay kumar &lt;vijay10.
+- ok sir regards, kalpana munagala manager - fixed deposit,mutual fund &amp; insurance. bajaj finserv, 5 th floor, prestige tower, residency road, bangalore - 560025. d: 080 - 30434500 ; mobile: +91
+- ok thank you sir, if you can please take actions to recieve the final outputs from the client and proceed the same as early as possible yours sincerly vishnu s empoyee code 875234 on wed, oct 17, 2018,
+- on tue, oct 9, 2018, 8:19 am mr.rohit kumar &lt;mrrohitk909@gmail.com&gt; wrote: my employee id is 1396132 my email id-mrrohitk909@gmail.com
+- on wed, 17 oct 2018 at 09:48, associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, please note that we require certain mandatory details to process your esic cards. request you to fill
+- on wed, 17 oct 2018, 10:34 am krishna kampati, &lt;kampatikrishna99@gmail.com&gt; wrote:
+- pf not added in my account
+- pfa
+- pfa password - nike1991 on tue, 16 oct 2018 at 11:38, associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us. request you to share us your original aadhar soft
+- pfa regards chethan on mon 5 nov, 2018, 2:00 pm infoteam, &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing us, we would request you to share us the soft copy of pan card, post
+- please confirm about receipt of pf claim form. please refer the trailing mail for your perusal . regards jithi j 9884267610 on sat, oct 13, 2018, 17:38 info team &lt;info@teamlease.com&gt; wrote: dear
+- please proceed urgently &amp; revert.. regards safiuddin mudi +91 9874132587 on tue 16 oct, 2018, 15:14 santu mudi, &lt;santu.jacks@gmail.com&gt; wrote: dear team, still pending salary of september,
+- please scroll down the message the and you will find that i have mailed them too and several times. are you guys able to understand or just dropping mails casually? on wednesday, 17 october, 2018, 10:
+- please see attachment
+- please send extension letter regards bharat gite
+- please status? regards dnyaneshwar more sales admin support - sales admin glenmark pharmaceuticals limited unit no 204,2nd floor, d wing, corporate avenue, new andheri- ghatkhopar link road, andheri
+- please transfer my money to the pf account on tue, 16 oct 2018 at 19:26, associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, thank you for writing to us kindly note the pf number : bg/
+- please write to info@teamlease.com with error screen shot
+- pls provide my emp id asap.
+- plz chek it
+- plz update on urgent basis on 10/10/18, associate inbound &lt;info@teamlease.com&gt; wrote: &gt; dear associate, &gt; &gt; kindly note with regards to your query request you to mention the dispensary
+- rahuloctave260@gmail.com
+- regards kamlesh
+- respected sir that is why i heartily request you to do my all clearances full and final and also please give me my reliving letter by 13 october 2018 it was my goodness that i got the chance to work
+- respected sir/maam i know that my f&f has been done earlier but right now i am asking about my allowances reimbursement which i havenâ€™t get yet ... 177 characters truncated ... i will get it from the teamlease end within 10-15 days as from 20-22 oct 2018. as i request you to please look in to it. regards akash sali
+- respected sir/madam i have received courier charges of 8th month on 15th of this month,amount is 3785 still 7&amp;9 th month are pending please release it as soon as possible amount of 7th month is 900
+- respected sir/mam please send it to me.
+- sachin ladane
+- salary is released
+- shared from excel for android https://office.com/getexcel
+- siddharth- call me back pls you are not receiving my call.. anand manager- product , nw - home loan bajaj housing finance limited a 100% subsidiary of bajaj finance limited | m: +91 7875862226 www.
+- sir medam pf satiled but function not received sir but i am applye 3 times you rejctad sir plz slow the problem sir on wed, 17 oct 2018, 9:54 am associate inbound, &lt;info@teamlease.com&gt; wrote:
+- sir please approve regards on 15-oct-2018 13:15, prabhat jauhari &lt;prabhat.jauhari@airtel.com&gt; wrote: dear sir, kindly help to update the reporting of below engineer in my team lease portal...
+- sir still teamlease asking for inputs and reporting manager mail id. kindly look after this. regards ramesh 1464634 ---------- forwarded message --------- from: associate inbound &lt;info@teamlease.com
+- sir, i&#39;m thresia anette i&#39;m working in lotus herbal brand. my employee no is tr10113239. i forgot my teamleas app password. so that plz send the password as well as possible. thank you thresia
+- sir, my name is sudhavnair. i cant able to open my application account with the password given by you. so please check it and allow me to login to my account at the earliest. thanking you, yours
+- sir, your intervention is required. amit jadhav from: angirath wankhade sent: 17 october 2018 09:12 to: sanjay gangapurkar &lt;sanjay.gangapurkar@bajajfinserv.in&gt;; amit jadhav_purchase &lt;amit.
+- status please thanks regards, iswaib hussain _91-9560606516 &#39;_01146012160 from: meenakshi bisht [mailto:reimbursement@plancover.com] sent: friday, october 12, 2018 4:43 pm to: iswaib2 hussain cc:
+- tender247.com tender247 apple app store tender247 google play store at tender247, we provide tender information with tender document &amp; tender result . sharing you some sample tenders published in
+- than why my pf is not been transferred ...kindly check than reply....its 3rd november from 16 april 2018.
+- thank you
+- thank you for reaching out to us at vodafone idea ltd., india&#39;s largest telecom company. we offer you more network coverage, more value and more excitement through products, services and solutions
+- thank you for your mail. on wed 17 oct, 2018, 5:59 am info@teamlease.com, &lt;info@teamlease.com&gt; wrote: dear kiran karad , wishing you a very happy birthday and hope you have a great year ahead. in
+- thank you for your response. on wed, oct 17, 2018, 10:49 am associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, hope our response with regards to your pf query has been satisfactory.
+- thank you sir. on tue 16 oct, 2018, 7:31 pm associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, we would like to inform you that as per your request the enquiry on leave details as
+- thank you so much ðŸ’ on oct 17, 2018 5:59 am, &quot;info@teamlease.com&quot; &lt;info@teamlease.com&gt; wrote: dear prathap v , wishing you a very happy birthday and hope you have a great year ahead. in
+- thank you so much fun with on oct 10, 2018 05:59, &quot;info@teamlease.com&quot; &lt;info@teamlease.com&gt; wrote: dear joginder singh , wishing you a very happy birthday and hope you have a great year
+- thanks a lot. on wed, 10 oct 2018, 5:59 am info@teamlease.com, &lt;info@teamlease.com&gt; wrote: dear gokul r krishnan , wishing you a very happy birthday and hope you have a great year ahead. in case
+- thanks for the mail. on tue, oct 16, 2018, 5:37 pm associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, please find the attached pf online transfer procedure for your information and
+- thanks for your response. there is no solution about my date of birth in this mail. please describe the mean of &quot;teamlease e-code mentioned on the face of the cheque mandatory &quot; which is
+- thanks neethu
+- thanks on wed, oct 17, 2018, 5:59 am info@teamlease.com &lt;info@teamlease.com&gt; wrote: dear guneshwar bhaurao sonkusale , wishing you a very happy birthday and hope you have a great year ahead. in
+- thanks sent from my samsung galaxy smartphone. -------- original message -------- from: info@teamlease.com date: 17/10/18 06:00 gmt+05:30 to: mynamerajkamal@yahoo.com subject: birthday wish dear raj
+- thanks team, i have received the salary. regards gaurav yadav
+- thanks thanks &amp; regards, dilip kadam marathon electric india pvt ltd b â€“ 908/909, sagar tech plaza, andheri kurla road, sakinaka, andheri e, mumbai â€“ 400 072 cell: +91 9820774648 email: dilip.
+- thanks to all my dear teamlease family on wed, oct 17, 2018, 5:59 am info@teamlease.com &lt;info@teamlease.com&gt; wrote: dear niranjan kumar singh , wishing you a very happy birthday and hope you have
+- thanks, i have received it.
+- thanks.
+- the following message to &lt;1263727null5@rediffmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&#39;requested action not taken: mailbox unavailable&#39;
+- the following message to &lt;bhuwadsiddheshas@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does
+- the following message to &lt;bijaymingh1988@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does not
+- the following message to &lt;ganeshraok1710@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does not
+- the following message to &lt;rahul.arora@bizsupportad.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&#39;requested action not taken: mailbox unavailable&#39;
+- the following message to &lt;rathwathsridevi@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does
+- the following message to &lt;sachin864joshi@gmail.com&gt; was undeliverable. the reason for the problem: 5.4.7 - delivery expired message too old [default] 452-&#39;4.2.2 the email account that you
+- the following message to &lt;sanjay79@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does not exist
+- the following message to &lt;shankarmhadagut@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does
+- the following message to &lt;sharadkhodke@rediffmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&#39;requested action not taken: mailbox unavailable&#39;
+- the following message to &lt;souravghoshnadia23@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does
+- the following message to &lt;sumitra1710985@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does not
+- the following message to &lt;thimme@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does not exist.
+- the following message to &lt;vidyaegaikwad@gmail.com&gt; was undeliverable. the reason for the problem: 5.1.0 - unknown address error 550-&quot;5.1.1 the email account that you tried to reach does not
+- this is an automatically generated delivery status notification. delivery to the following recipients failed. bunulama!@gmail.com
+- this is what it is displaying when we open it to request annexure k form from: admin works &lt;admin.works@jayinst.com&gt; date: wed, 10 oct 2018, 12:28 pm
+- to epf bangalore., mohan babu barkola uan no. : 100229511439 pf no : bg/bng/0035224/000/0338302 eps-95 no :bg/bng/0035224/000/0338302 my corrections regarding dob. adhara card and name has been
+- tq sir sridhar on wed, 17 oct 2018, 10:28 am associate inbound, &lt;info@teamlease.com&gt; wrote: dear associate, we would like to inform you that as per your request the appointment letter as attached
+- we send the carrier on tue, oct 16, 2018 at 11:30 am associate inbound &lt;info@teamlease.com&gt; wrote: dear associate, as discussed with regards to your pf application,courier details yet to update
+- weather sent frn yahoo mail zxzzzzzzzxxxdxxxxdxxxxxzndroidÂ¢soxzzzzzzzzzawfwauxdzzdgfuxdzzd
+- where is my selery bounas and when u release inform today is 03/11/2018 dipawli is coming what are u doing
+
+## intent:salarybreakup
+- awaiting response. best regards, deepika verma sr. admin executive-whirlpool of india ltd. phone: 0129-6612100 ext: 2309 on tue ... 1060 characters truncated ... orporate for all the f&f being processed going forwards in associates bank account" currently applicable only for our teamlease associates.
+- dear ashish sir, please intervene, rest amount has not credited in my account yet. dear team, client team already confirmed that rest amount will be credited but amount not received so far. regards,
+- dear rabiya. good afternoon !!! appreciate your quick reply but please note i don't have policy no. & insurance card with me. waiting for you ... 3030 characters truncated ... al: http://associate.teamlease.com/ please follow the attached hyperlink to an important disclaimer http://www.teamlease.com/disclaimer.htm
+- dear sir my salary deduction take happen september and october month. what is region. plz verify and send my salary. thanks & regards daya shankar 9971662496 emp code-1452716
+- dear sir, iam interested extra 1000 thousand rupes of deduction my salary epf purpose. please conform me. with regards prabodha kumar nayak emp-807676
+- dear sir/madam, i am anand nadar from navi mumbai working for the client idfc bank, navi mumbai juinagar location and my employee i'd is 12 ... 428 characters truncated ... naccount, since now i am exempted from the esic. kindly do the at the earliest and revert me on this email asap. regards anand nadar
+- dear sir/mam, i need address prof letter for my communication address changing in my salary account. address mention in below: *n ... 101 characters truncated ... ppal dist. , karnataka* *pin: 583277, * *regards,* *shiba prasad mohanty* *emp. code: 1213374* *psepl-kallur site*
+- dear team my incentive structure please
+- dear team, employee no: 1275956 i have received salary of rs.8855 for the month of sep 2018... need breakup where did u deduct my remaining ... 67 characters truncated ... r from 1st sep 2018 to 25th sep 2018. kindly check and revert me as soon as possible.... regards, jagdish bhavani 7208899993 8425065918
+- dear team, i shaike inthiyaz team lease employee code - 800517 working for your client ao smith india water products pvt l ... 12 characters truncated ... any has done salary apprisals pls share my revised salary structure letter immediately. thanks & regards s. inthiyaz - 800517
+- dear teamlease, type : leave break up nature : inputs category : leaves concern : dear sir , kindly provide the my leave breakup detail 2018 to 2019. requested date : 04-11-2018 15:17:39 login id :
+- dear teamlease, type : manpower requests nature : others category : others concern : the month of october my last month one day salary deduction by mistake , wich was my rm approved plz relive my last
+- dear teamlease, type : salary break up nature : salary category : release concern : dear team my 2days salry deduted requested date : 11/03/2018 10:35:53 login id : barghat00143@gmail.com email id :
+- dear teamlease, type : salary break up nature : salary category : release concern : i have got my october month salary with reduction of 5 days, and sep month 3 days reduction of salary. kindly check
+- digital construction 12-13 february 2019\xa0\xa0\xa0\xa0\xa0 dubai, uae given the construction industryâ€™s poor track record on innovation an ... 1742 characters truncated ... ied. to register for this international conference, kindly fill in the registration form and fax or email it back to me. regards \xa0
+- gst audits and annual return 15th november 2018 - mumbai - hyatt regency 15th november 2018 - bangalore - ramada 15th no ... 3624 characters truncated ... in inbox. add us to your address book. reply with subject remove to unsubscribe from the mailing list
+- hi can you please let me know if i didn't serve proper notice period then the deduction from my f&f will be from my gross salary or from basic salary. -- thanks and regards :*-* * aman** kamboj* *contact no.-+91-7814127101*
+- hi sir, with regards to trial we have received your mediclaim documents, where the our processing doctor has confirmed the this claim is taken und ... 170 characters truncated ... h breakup 3. cash paid receipts 4. all the investigation reports 5. govt id proof of patient and bank details. regards praveen
+- hi team , this letter is not mention salary break up.i needing it regards, sanjay from: do-not-reply@teamlease.com [mailto:do-not-reply@teamlease.com] sent: sunday, november 4, 2018 10:40 pm to: pawar, sanjay x. -
+- hi team, thanks for your email! please note, i've not received any call from you. could you please confirm, is there any procedure to withdraw ... 3924 characters truncated ... galore-560095.ph: 91-080-33002345, fax: 080-33243001 website: www.teamlease.com/ blog: http://teamlease.blogspot.com â€œputting india to workâ€
+- hi, i received my salary, but like to know fnf breakup
+- hi, my team lease id is 1447841. my monthly in hand is rs. 70,000. there was a deduction of rs. 1700 in the october month salary. please let me know why there was deduction in the salary.
+- i am working in teams lease company in airtel broadband network engineer my employe id 1081030 last month october salary detection my holiday pay ... 132 characters truncated ... soon as possible my colleague get salary oct month salary 20522 rs getting my friends got 21500rs salary please check it's . thanks you
+- kindly explain me reasons of my october salary deduction and please share my medical leave casual leave and other leave details regards, vandana raikwar em-1026567 sent from my iphone
+- my manager said he submitted my full attandance, then how can you say 3 lop in month of october.
+- my name is dhruval upadhyay emloyee id -1455509 . some deduction has been mentioned in my salary as canded. what is "canded" in deduction
+- my sallery of october18 is wrong plz solve
+- name : s surya emply id: 1419913 this oct month my incentive was 18000 but u have sent the amount only 14000 with my salary what about rest 4000 ?
+- reply is still awaited on wed 31 oct, 2018, 21:34 rakesh jindal, <jindal.rakesh1981@gmail.com> wrote: > dear team, > > my sala ... 129 characters truncated ... oct'18. pls > provide the reasons of deduction. > > regards > rakesh kumar > 9876680080-8360052652 > employee code 1149305 >
+- resp.sir, my name is sunil kumar sharma filed officer from kanpur nagar and my empid-1415697. sir my query is salary deduction lop-1, in octo ... 128 characters truncated ... is rs 15738/-. so plz consider my salary deduction. thanks and regards, sunil kumar sharma mob no-9795939494 fo kanpur nagar
+- sir my self mohd faisal emp code 1460255 i got salary on 3rd nov rs 9750.which have od deduction 750 rs so i want to know that why my 750rs deducted in my salary .
+- sir, this is mohammed rafi working as ro in manappura finance limited in my salary 2000 deducted but iam present all working days in october month please resolve the issuse employee detail: name:
+- sir; all the details are shared to you and my tenure is of five years ,so i think i am not fall in tds deduction but if it occurs in that slab than ... 250 characters truncated ... m@gmail.com ge t & d india limited, a-7 sector 65, noida 201301, u.p. , india +91 120 479 00 00 site: **www.ge.com* http://www.alstom.com/grid
+- tender247 tender alert <http://nr0p.trk.elasticemail.com/tracking/click?d=hv_4gxshf3nkonypu1ptg0wq1bn78abosojgu48xmidbptjobxze6p8bqqkjkgypplqvnlif ... 73337 characters truncated ... www.tender247.com <http://nr0p.trk.elasticemail.com/tracking/unsubscribe?msgid=kz7bcavrbw5zbdkfnsxvzw2> unsubscribe from this list
+- tender247 tender alert <http://nr0p.trk.elasticemail.com/tracking/click?d=hv_4gxshf3nkonypu1ptg7bwx2tmiydw-l9gs0nkzchxodoqbmwkf1qq4id2-aa3vouwrr7f ... 73053 characters truncated ... www.tender247.com <http://nr0p.trk.elasticemail.com/tracking/unsubscribe?msgid=5yb7fqwrbsgft3rfoswhcg2> unsubscribe from this list
+- tender247 tender alert <http://nr0p.trk.elasticemail.com/tracking/click?d=hv_4gxshf3nkonypu1ptg7bwx2tmiydw-l9gs0nkzcjwg1wpiaemlkjrmgsl5bc4yjqbl5e2 ... 73075 characters truncated ... www.tender247.com <http://nr0p.trk.elasticemail.com/tracking/unsubscribe?msgid=cs7c9grhpj7lmijgeywoxw2> unsubscribe from this list
+- why are my october sallary deduct
+- why this month salary deducted 1500 rupees from my salary . i want back my all money
+- yes please note : none from team lease have contacted me on any deduction and they should not be quoting us as it sends wrong msg to the team thanks & regards, satish
+
+
